@@ -1,10 +1,9 @@
 ---
-published: false
----
----
+
 layout: post
 title: Prose.io Test
 published: true
+
 ---
 
 ## What a useful tool.
