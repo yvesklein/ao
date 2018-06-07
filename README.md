@@ -2,7 +2,12 @@
 this is the repo for amoromnib.us, a sex/sexuality blog.
 
 ### todo
-- [ ] about page
+- [x] about page
 - [ ] sample/test/draft posts
-- [ ] test search
-- [ ] test netlify
+- [x] test search
+- [x] test netlify (finally got it!)
+- [ ] about page revision
+- [ ] customize tags
+- [ ] test/fix posts
+- [ ] footer copy
+- [ ] fontawesome/similar? wya?
