@@ -1,7 +1,7 @@
 ---
 layout: page
 title: About
-permalink: amoromnib.us/about/
+permalink: /about/
 published: true
 ---
 
