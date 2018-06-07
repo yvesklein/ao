@@ -13,3 +13,4 @@ this is the repo for amoromnib.us, a sex/sexuality blog.
 - [ ] fontawesome/similar? wya?
 - [ ] favicon
 - [ ] change site bg-color to a lighter white
+- [ ] add header links(pages): 'toybox' 'articles', etc
