@@ -11,3 +11,4 @@ this is the repo for amoromnib.us, a sex/sexuality blog.
 - [ ] test/fix posts
 - [ ] footer copy
 - [ ] fontawesome/similar? wya?
+- [ ] favicon
