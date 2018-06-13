@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 layout: post
 tags:
   - review
@@ -13,4 +13,4 @@ I definitely bought the Ripple with ‘sizing up’ in mind; I’d never played 
 
 Definitely recommend as a starter anal toy–you can get a little more fun out of this if you’re not specifically looking for a plug to wear. Thrusting it feels great and there’s the Ripple large to graduate to if you like the idea of using it to learn to take even larger toys.
 
-Pick up the Ripple Small at Tantus for some Grab Bag excitement! 
+Pick up the Ripple Small at Tantus for some Grab Bag excitement!
