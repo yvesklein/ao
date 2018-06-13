@@ -1,4 +1,4 @@
 ---
 slug: review
-name: review
+name: Reviews
 ---
