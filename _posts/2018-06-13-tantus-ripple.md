@@ -3,9 +3,15 @@ published: true
 layout: post
 tags:
   - review
-hero: null
+hero: 'https://source.unsplash.com/collection/145103/'
 ---
-I like the Ripple; the small size means it’s perfect for starting to use ‘cold’. When using it for the first time, I discovered how much I like the undulating shape of the toy, despite the small size. Surprisingly(to me, anyway), I really enjoy even going from bead #1 to #2. 2 to 3 is even better. Because the base is round and, I think because of the size of my ass lol, is practically impossible to get flush with my anus, I think of the Ripple as more of a small anal dildo. I imagine this would be even more true of the larger incarnation of the Ripple.
+I like the Ripple; the small size means it’s perfect for ‘cold’ use.
+{: .lead}
+
+When using it for the first time, I discovered how much I like the undulating shape of the toy, despite the small size.
+<!–-break-–>
+
+Surprisingly(to me, anyway), I really enjoy even going from bead #1 to #2. 2 to 3 is even better. Because the base is round and, I think because of the size of my ass lol, is practically impossible to get flush with my anus, I think of the Ripple as more of a small anal dildo. I imagine this would be even more true of the larger incarnation of the Ripple.
 
 Tantus isn’t the only manufacturer of this type of anal toy: like their Silk series, there are several companies that make comparable options. Thing is, Tantus silicone and ethical standing is top-notch, where some of the other bead-dildo types of toys don’t come from companies that exclusively produce body-safe toys by hand, in the USA. Tantus is also widely available and the chances of getting a Ripple at a good price is pretty high. BS Atelier, another excellent company, makes a slightly thicker toy with a similar profile, the Bobó. It’s pretty, but it’s a bit more expensive than the Ripple large on Shevibe. It’s justifiable, though: one big leg-up the Bobó does have over both Ripples is the bar-type base, allowing for comfortable wear between the cheeks. Additionally, it comes in rainbow(!) and doesn’t have the length of the Ripple (l) while approaching its maximum width (1.25” vs 1.5”). More length can be uncomfortable or undesireable in anal toys, so I see this as a plus. I definitely can’t, and wouldn’t like to, take over 6” of the Ripple large to get the benefit of that last 1.5”-thick bead.
 
