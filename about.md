@@ -30,8 +30,10 @@ published: true
 \*Obviously, translations vary, and there's an entire book of context around it, but that's part of the gist.
 
 > *Nay, every race on earth of men, and beasts,
-And ocean-folk, and flocks, and painted birds,
-Rush to the raging fire: love sways them all.*
+
+> And ocean-folk, and flocks, and painted birds,
+
+> Rush to the raging fire: love sways them all.*
 
 [Verg. G. 3.242](http://www.perseus.tufts.edu/hopper/text?doc=urn:cts:latinLit:phi0690.phi002.perseus-eng1:3.242-3.283)
 
