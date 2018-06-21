@@ -27,7 +27,8 @@ published: true
     - Call me ~~by your name~~ Jean. I'm a cis lesbian in my 20's that wants to explore, discover, and enjoy my sexuality and my body; I thought a blog would be an interesting and especially illuminating way to do this, because it forces me to express myself safely w/r/t topics that are otherwise kept quiet.
     - Otherwise, I'm a student and writer. I love art. I'm vegan.
 
-[1]: Obviously, translations vary, and there's an entire book of context around it, but that's part of the gist.
+[^1]:
+  Obviously, translations vary, and there's an entire book of context around it, but that's part of the gist.
 
 > Nay, every race on earth of men, and beasts,
 
