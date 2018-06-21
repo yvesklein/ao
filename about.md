@@ -28,7 +28,7 @@ published: true
     - Otherwise, I'm a student and writer. I love art. I'm vegan.
 
 [^1]:
-  Obviously, translations vary, and there's an entire book of context around it, but that's part of the gist.
+	Obviously, translations vary, and there's an entire book of context around it, but that's part of 	the gist.
 
 > Nay, every race on earth of men, and beasts,
 
