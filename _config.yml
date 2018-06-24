@@ -1,17 +1,17 @@
 # Base blog settings
 baseurl                      : "" # the subpath of your site,                         # e.g. /blog/
                               # set to '' in case of hosting on GitHub
-url                          : "http://amoromnib.us" # the base hostname & protocol for your site
+url                          : "http://solochro.me" # the base hostname & protocol for your site
                                   # `http://<username>.github.io` - for GitHub
 
 blog:
-  title                      : amoromnib.us
+  title                      : solochro.me
   description                  : >
                                a sex and discovery blog
 
 # Layout configuration
   logo_path                  : "" # edit: removed logo obj in header.html.
-  search_path                : "http://amoromnib.us"
+  search_path                : "http://solochro.me"
   hero_layout                : true # turn on hero layout for blog and posts
   hero_placeholder           : "assets/img/generic_hero.jpg" # placeholder for hero image
   excerpts                   : true # show excerpts instead of full post content on blog page
@@ -27,7 +27,7 @@ blog:
 author:
   fullname                  : Jean
   rss                       : false # generate RSS feed and show it's icon in header
-  mail                      : your@email.com # change to your e-mail address
+  mail                      : jean@solochro.me # change to your e-mail address
   twitter                   : 
   github                    :
   youtube                   : 
