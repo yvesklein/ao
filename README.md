@@ -1,17 +1,2 @@
-# ao
-this is the repo for amoromnib.us, a sex/sexuality blog.
-
-### todo
-- [x] about page
-- [ ] sample/test/draft posts
-- [x] test search
-- [x] test netlify (finally got it!)
-- [ ] about page revision
-- [ ] customize tags
-- [ ] test/fix posts
-- [ ] footer copy
-- [ ] fontawesome/similar? wya?
-- [ ] favicon
-- [ ] change site bg-color to a lighter white
-- [ ] add header links(pages): 'toybox' 'articles', etc
-- [ ] make post template
+# solochro.me
+this is the repo for solochro.me, a sex/sexuality blog.
