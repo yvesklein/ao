@@ -5,7 +5,7 @@ url                          : "http://solochro.me" # the base hostname & protoc
                                   # `http://<username>.github.io` - for GitHub
 
 blog:
-  title                      : solochro.me
+  title                      : solochrome
   description                  : >
                                a sex and discovery blog
 
@@ -32,10 +32,10 @@ author:
   github                    :
   youtube                   : 
   stackoverflow             : 
-  disqus                    : amoromnib-us # your disqus site name
+  disqus                    : solochro-me # your disqus site name
   google_analytics          : # 'UA-XXXXXXXX-X'
-  photo                     : "uploads/me2.png"
-  photo2x                   : "uploads/me.png"
+  photo                     :
+  photo2x                   :
 
 
 
