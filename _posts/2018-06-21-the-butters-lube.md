@@ -4,6 +4,7 @@ layout: post
 tags:
   - review
 hero: 'https://source.unsplash.com/collection/145103/'
+title: The Butters Lube Review
 ---
 The best part about The Butters’ lube is how luxurious it feels and how seamlessly it blends into/onto my skin. 
 {: .lead}
