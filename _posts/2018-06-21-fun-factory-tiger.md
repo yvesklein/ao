@@ -3,6 +3,7 @@ published: true
 layout: post
 tags:
   - review
+title: Fun Factory Tiger Review
 ---
 The Tiger had intrigued me for months before I finally bought it.
 {: .lead}
