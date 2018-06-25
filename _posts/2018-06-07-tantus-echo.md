@@ -1,10 +1,9 @@
 ---
 layout: post
-title: 'Tantus Echo & Echo Super Soft Review [Draft/Test]'
+title: Tantus Echo & Echo Super Soft Reviews
 tags:
   - review
 hero: 'https://source.unsplash.com/collection/145103/'
-overlay: green
 published: true
 ---
 The Tantus Echo and Echo Super Soft are surprisingly different.
