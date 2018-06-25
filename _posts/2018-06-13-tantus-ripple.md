@@ -3,7 +3,6 @@ published: true
 layout: post
 tags:
   - review
-hero: 'https://source.unsplash.com/collection/145103/'
 title: Tantus Ripple Review
 ---
 I like the Ripple; the small size means it’s perfect for ‘cold’ use.
