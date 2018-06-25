@@ -18,24 +18,21 @@ published: true
 
 {% include page/title.html title=page.title subtitle=page_subtitle %}
 
-## Welcome to my sex blog, *amoromnib.us.*
+## Welcome to my sex blog, *solochro.me*
 
 - What kind of name is that?
-    - I took it from the Latin phrase *amor omnibus idem*, meaning (in some sense[^1]) "love is the same for all." Why? Because it's an inclusive name/concept and it's a nod to the wonder of human sexuality. Also, pride.
+    - Instead of monochrome, I went with 'solo'-chrome because monochro.me was taken.
+    	- Ok, but why monochrome?
+    		- Inspired by the lesbian flag and the classic gay pride flag. I also like the way that they're icons that show and embody a sort of progression; the '*chrome*' part of the name, in the context of a sex blog, evokes those colors for me.
+- What do you think you're doing, exactly?
+	- I want to explore, discover, and enjoy my sexuality and my body; I thought a blog would be an interesting and especially illuminating way to do this, because it forces me to express myself safely regarding topics that are otherwise kept quiet in my life.
 
 - Who are you?
-    - Call me ~~by your name~~ Jean. I'm a cis lesbian in my 20's that wants to explore, discover, and enjoy my sexuality and my body; I thought a blog would be an interesting and especially illuminating way to do this, because it forces me to express myself safely w/r/t topics that are otherwise kept quiet.
-    - Otherwise, I'm a student and writer. I love art. I'm vegan.
+    - Call me ~~by your name~~ Jean. I'm a cis[^1] lesbian in my 20's. Apart from being an amateur sex blogger, I'm a student and writer. I love art. I'm vegan.
+    
 
 [^1]:
-	Obviously, translations vary, and there's an entire book of context around it, but that's part of 	the gist.
+	I'll be writing about this. But for now, that's my answer.
 
-> Nay, every race on earth of men, and beasts,
-
-> And ocean-folk, and flocks, and painted birds,
-
-> Rush to the raging fire: love sways them all.
-
-[Verg. G. 3.242](http://www.perseus.tufts.edu/hopper/text?doc=urn:cts:latinLit:phi0690.phi002.perseus-eng1:3.242-3.283)
 
 </div>
