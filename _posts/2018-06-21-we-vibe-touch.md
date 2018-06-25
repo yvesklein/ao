@@ -3,7 +3,6 @@ published: true
 layout: post
 tags:
   - review
-hero: 'https://source.unsplash.com/collection/145103/'
 title: We-Vibe Touch Review
 ---
 The We-Vibe Touch is a quality vibrator. Along with the Tango, it’s praised all over the sex toy world. My thoughts are a little different.
