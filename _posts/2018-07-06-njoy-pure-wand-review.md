@@ -1,11 +1,11 @@
 ---
-layout: blog
+layout: post
 title: njoy Pure Wand Review
 date: 2018-07-06 04:00:00 +0000
-tags: 
-  - review
+tags:
+- review
 hero: "/uploads/njoy_s.png"
-published: true
+published: 'true'
 ---
 I'd placed the box in my nightstand before I'd even used it.
 {: .lead}
