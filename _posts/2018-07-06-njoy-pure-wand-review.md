@@ -8,17 +8,16 @@ tags: []
 hero: "/uploads/njoy_s.png"
 undefined: ''
 ---
-## **njoy Pure Wand Review**
+I'd placed the box in my nightstand before I'd even used it. {: .lead}
 
-I'd placed the box in my nightstand before I'd even used it. It came in a day, with free shipping from Peepshow Toys, via an awesome deal ($79 for the Pure Wand and a 2 oz container of The Butters Lube).
+It came in a day, with free shipping from Peepshow Toys, via an awesome deal ($79 for the Pure Wand and a 2 oz container of The Butters Lube).
+<!--break-->
 
-A few weeks later I'd considered my preemptive nightstand placement a bit of a mistake. I'd made an assumption that I'd love the Wand so much it'd end up there shortly anyway, so let's just skip the formalities, huh? Thing is, I didn't quite like this legend of a toy much until somewhat recently1. I feel like I finally "got" it, and now having that black box in my nightstand feels right. Despite my rocky introduction to the toy, I had decided to keep it there and to try to learn how to use it better. See, I'd read tons of reviews on the Pure Wand, and a few mentioned that there's a "learning curve"2 to getting the most out of it. I had to give it the old college try.
+A few weeks later I'd considered my preemptive nightstand placement a bit of a mistake. I'd made an assumption that I'd love the Wand so much it'd end up there shortly anyway, so let's just skip the formalities, huh? Thing is, I didn't quite like this legend of a toy much until somewhat recently[^1]. I feel like I finally "got" it, and now having that black box in my nightstand feels right. Despite my rocky introduction to the toy, I had decided to keep it there and to try to learn how to use it better. See, I'd read tons of reviews on the Pure Wand, and a few mentioned that there's a "learning curve"[^2] to getting the most out of it. I had to give it the old college try.
 
-The thing is, the Pure Wand has such lofty status in the sex blogging world that I immediately thought that I should keep trying instead of putting it to the side as "not for me." It couldn't be, _it's the njoy Pure Wand._ I just want to put it out there–some people really might not like this toy and won't ever 'learn' to. This is fine. So although I've come to like my Pure Wand a lot more, I think it's expensive enough that if you don't feel confident in taking the $80-$120 plunge ... don't.
+The thing is, the Pure Wand has such lofty status in the sex blogging world that I immediately thought that I should keep trying instead of putting it to the side as "not for me." It couldn't be, *it's the njoy Pure Wand.* I just want to put it out there–some people really might not like this toy and won't ever 'learn' to. This is fine. So although I've come to like my Pure Wand a lot more, I think it's expensive enough that if you don't feel confident in taking the $80-$120 plunge ... don't.
 
-At least not yet. Try a curved-n-bulbed glass toy, tons of which can be had at almost any price point3. This is what I did, with the Gläs Double-Headed dildo. My enjoyment of that dildo also had me holding out hope that the Pure Wand could feel really good for me. Happily, it does now.
-
-And how! Time to sing the Pure Wand's praises.
+At least not yet. Try a curved-n-bulbed glass toy, tons of which can be had at almost any price point[^3]. This is what I did, with the Gläs Double-Headed dildo. My enjoyment of that dildo also had me holding out hope that the Pure Wand could feel really good for me. Happily, it does now.
 
 ![](/uploads/njoy_h.png)
 
