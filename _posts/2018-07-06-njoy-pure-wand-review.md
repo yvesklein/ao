@@ -31,5 +31,9 @@ I find the Pure Wand a good deal more enjoyable if I heat it up before use. Even
 You can buy the Pure Wand at [Peepshow Toys](http://www.peepshowtoys.com#oid=91554_4244), [Vibrant](https://www.bevibrant.com/products/njoy-pure-wand-dildo?rfsn=1509055.df2dc&utm_source=refersion&utm_medium=affiliate&utm_campaign=1509055.df2dc), or practically anywhere else.
 
 \[^1\]: My first attempt at reviewing the Pure Wand contained sentences like: "As surprising as it may be, at this point in time, I can definitely say I’ve had a better time with my Gläs toy than with my Pure Wand."
+
+
 \[^2\]: Most notably [Hey Epiphora](https://heyepiphora.com/2010/07/my-love-the-pure-wand-plus-a-few-tips).
+
+
 \[^3\]: Gläs makes cheap toys in a few good shapes, and on Etsy there are decently-priced options as well. Plus, you can even get something custom. Otherwise, there are usually curved glass toys available wherever you buy toys. And of course, there's Icicles by Pipedream, but Pipedream sucks. It's your decision though.
