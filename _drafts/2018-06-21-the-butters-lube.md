@@ -1,9 +1,9 @@
 ---
-published: true
 layout: post
 tags:
-  - review
+- review
 title: The Butters Lube Review
+date: 2018-06-21 00:00:00 +0000
 ---
 The best part about The Butters’ lube is how luxurious it feels and how seamlessly it blends into/onto my skin. 
 {: .lead}
