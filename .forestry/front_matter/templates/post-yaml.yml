@@ -19,7 +19,6 @@ fields:
   name: hero
   label: Hero
   description: Hero Image
-- type: datetime
 - type: text
   label: Title
   name: title
