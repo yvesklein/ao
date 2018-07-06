@@ -8,7 +8,8 @@ tags: []
 hero: "/uploads/njoy_s.png"
 undefined: ''
 ---
-I'd placed the box in my nightstand before I'd even used it. {: .lead}
+I'd placed the box in my nightstand before I'd even used it.
+{: .lead}
 
 It came in a day, with free shipping from Peepshow Toys, via an awesome deal ($79 for the Pure Wand and a 2 oz container of The Butters Lube).
 <!--break-->
