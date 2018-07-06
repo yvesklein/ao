@@ -11,7 +11,8 @@ overlay: pink
 I'd placed the box in my nightstand before I'd even used it.
 {: .lead}
 
-It came in a day, with free shipping from Peepshow Toys, via an awesome deal ($79 for the Pure Wand and a 2 oz container of The Butters Lube). <!--break-->
+It came in a day, with free shipping from Peepshow Toys, via an awesome deal ($79 for the Pure Wand and a 2 oz container of The Butters Lube).
+<!--break-->
 
 A few weeks later I'd considered my preemptive nightstand placement a bit of a mistake. I'd made an assumption that I'd love the Wand so much it'd end up there shortly anyway, so let's just skip the formalities, huh? Thing is, I didn't quite like this legend of a toy much until somewhat recently[^1]. I feel like I finally "got" it, and now having that black box in my nightstand feels right. Despite my rocky introduction to the toy, I had decided to keep it there and to try to learn how to use it better. See, I'd read tons of reviews on the Pure Wand, and a few mentioned that there's a "learning curve"[^2] to getting the most out of it. I had to give it the old college try.
 
@@ -33,8 +34,6 @@ You can buy the Pure Wand at [Peepshow Toys](http://www.peepshowtoys.com#oid=915
 
 [^1]: My first attempt at reviewing the Pure Wand contained sentences like: "As surprising as it may be, at this point in time, I can definitely say I’ve had a better time with my Gläs toy than with my Pure Wand."
 
-
 [^2]: Most notably [Hey Epiphora](https://heyepiphora.com/2010/07/my-love-the-pure-wand-plus-a-few-tips).
-
 
 [^3]: Gläs makes cheap toys in a few good shapes, and on Etsy there are decently-priced options as well. Plus, you can even get something custom. Otherwise, there are usually curved glass toys available wherever you buy toys. And of course, there's Icicles by Pipedream, but Pipedream sucks. It's your decision though.
