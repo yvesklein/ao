@@ -1,0 +1,19 @@
+---
+hide_body: false
+is_partial: false
+fields:
+- type: text
+  name: layout
+  label: Layout
+  default: page
+- type: text
+  name: title
+  label: Title
+- type: text
+  name: permalink
+  label: permalink
+  description: "/example/"
+- type: text
+  name: published
+  label: published
+  description: true or false
