@@ -11,7 +11,7 @@ fields:
   label: Layout
   type: text
   hidden: false
-  default: blog-by-tag
+  default: post
 - type: tag_list
   name: tags
   label: Tags
@@ -24,6 +24,10 @@ fields:
   name: title
   config:
     required: true
+- type: text
+  name: published
+  label: Published?
+  description: true or false
 pages:
 - _my_tags/article.md
 - _my_tags/resource.md
