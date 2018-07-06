@@ -1,0 +1,28 @@
+---
+hide_body: false
+is_partial: false
+fields:
+- name: slug
+  label: Slug
+  type: text
+  hidden: false
+  default: ''
+- name: name
+  label: Name
+  type: text
+  hidden: false
+  default: ''
+- name: date
+  label: Date
+  type: datetime
+  hidden: false
+  default: ''
+- name: layout
+  label: Layout
+  type: text
+  hidden: false
+  default: blog-by-tag
+pages:
+- _my_tags/article.md
+- _my_tags/resource.md
+- _my_tags/review.md
