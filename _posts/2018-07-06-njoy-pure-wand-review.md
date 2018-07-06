@@ -6,6 +6,7 @@ tags:
 - review
 hero: "/uploads/njoy_s.png"
 published: 'true'
+overlay: pink
 ---
 I'd placed the box in my nightstand before I'd even used it.
 {: .lead}
