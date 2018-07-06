@@ -28,6 +28,9 @@ fields:
   name: published
   label: Published?
   description: true or false
+- type: text
+  name: overlay
+  label: Overlay
 pages:
 - _my_tags/article.md
 - _my_tags/resource.md
