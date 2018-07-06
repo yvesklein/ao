@@ -27,7 +27,7 @@ blog:
 author:
   fullname                  : Jean
   rss                       : false # generate RSS feed and show it's icon in header
-  mail                      : jean@solochro.me # change to your e-mail address
+  mail                      : solochrome@tuta.io # change to your e-mail address
   twitter                   : solochro_me
   github                    :
   youtube                   : 
