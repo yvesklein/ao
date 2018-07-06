@@ -17,3 +17,5 @@ fields:
   name: published
   label: published
   description: true or false
+pages:
+- toybox.md
