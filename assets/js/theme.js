@@ -10,9 +10,9 @@ const isObject = (obj) => obj === Object(obj)
 
 const LightTheme = {
   '--bg-color': '#fff',
-  '--text-color': '#000',
-  '--text-color-light': '#000',
-  '--link-color': '#000',
+  '--text-color': '#000000',
+  '--text-color-light': '#000000',
+  '--link-color': '#000000',
   '--metadata-color': '#999',
   '--post-title': '#313131',
   '--code-bg-color': '#eee',
