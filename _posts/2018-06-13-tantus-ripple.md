@@ -4,6 +4,8 @@ layout: post
 tags:
   - review
 title: Tantus Ripple Review
+hero: "/assets/img/generic-hero.jpg"
+overlay: purple
 ---
 I like the Ripple; the small size means it’s perfect for ‘cold’ use.
 {: .lead}

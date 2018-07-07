@@ -4,6 +4,8 @@ title: Tantus Echo & Echo Super Soft Reviews
 tags:
   - review
 published: true
+hero: "/assets/img/generic-hero.jpg"
+overlay: blue
 ---
 The Tantus Echo and Echo Super Soft are surprisingly different.
 {: .lead}
