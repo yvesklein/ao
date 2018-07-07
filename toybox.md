@@ -5,19 +5,24 @@ date: 2018-07-06 23:25:54 +0000
 permalink: toybox
 published: 'true'
 ---
-### Dildos
-	- Gläs Double-Headed Dildo
-	- Fun Factory Tiger
-	- njoy Pure Wand
-	- Tantus Echo
-	- Tantus Echo Super Soft
-	- Tantus Tsunami
 
-### Vibrators
-	- We-Vibe Touch
+## Dildos
 
-### Suction Toys
-	- Womanizer Starlet
+    - Gläs Double-Headed Dildo
+    - [Fun Factory Tiger](https://www.solochro.me/posts/fun-factory-tiger)
+    - [njoy Pure Wand](https://www.solochro.me/posts/njoy-pure-wand-review)
+    - [Tantus Echo](https://www.solochro.me/posts/tantus-echo)
+    - [Tantus Echo Super Soft](https://www.solochro.me/posts/tantus-echo)
+    - Tantus Tsunami
 
-### Butt Toys
-	- Tantus Ripple
+## Vibrators
+
+    - We-Vibe Touch
+
+## Suction Toys
+
+    - Womanizer Starlet
+
+## Butt Toys
+
+    - Tantus Ripple
