@@ -9,6 +9,7 @@ The Tantus Echo and Echo Super Soft are surprisingly different.
 {: .lead}
 
 My latest purchase from Tantus was a Grab Bag Echo–I ended up receiving an Echo Super Soft in what looks like Midnight Purple instead of the normal firmness. Tantus sent me a normal Echo in Purple Haze after that, so I get to review both here!
+
 <!–-break-–>
 
 Incidentally, the Echo Super Soft(SS) normally comes in Purple Haze or Wine, while the Echo is available in Midnight Purple or Pearly White. So the textures of my two Echoes are switched. Neat.

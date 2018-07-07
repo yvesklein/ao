@@ -6,12 +6,13 @@ tags:
 - review
 hero: "/uploads/njoy_s.png"
 published: 'true'
-overlay: pink
+overlay: red
 ---
 I'd placed the box in my nightstand before I'd even used it.
 {: .lead}
 
 It came in a day, with free shipping from Peepshow Toys, via an awesome deal ($79 for the Pure Wand and a 2 oz container of The Butters Lube).
+
 <!--break-->
 
 A few weeks later I'd considered my preemptive nightstand placement a bit of a mistake. I'd made an assumption that I'd love the Wand so much it'd end up there shortly anyway, so let's just skip the formalities, huh? Thing is, I didn't quite like this legend of a toy much until somewhat recently[^1]. I feel like I finally "got" it, and now having that black box in my nightstand feels right. Despite my rocky introduction to the toy, I had decided to keep it there and to try to learn how to use it better. See, I'd read tons of reviews on the Pure Wand, and a few mentioned that there's a "learning curve"[^2] to getting the most out of it. I had to give it the old college try.
