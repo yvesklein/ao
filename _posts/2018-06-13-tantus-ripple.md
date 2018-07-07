@@ -10,7 +10,7 @@ I like the Ripple; the small size means it’s perfect for ‘cold’ use.
 
 When using it for the first time, I discovered how much I like the undulating shape of the toy, despite the small size.
 
-<!–-break-–>
+<!--break-->
 
 Surprisingly(to me, anyway), I really enjoy even going from bead #1 to #2. 2 to 3 is even better. Because the base is round and, I think because of the size of my ass lol, is practically impossible to get flush with my anus, I think of the Ripple as more of a small anal dildo. I imagine this would be even more true of the larger incarnation of the Ripple.
 
