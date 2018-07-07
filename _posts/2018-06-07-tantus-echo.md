@@ -5,7 +5,7 @@ tags:
   - review
 published: true
 hero: "/assets/img/generic-hero.jpg"
-overlay: blue
+overlay: purple
 ---
 The Tantus Echo and Echo Super Soft are surprisingly different.
 {: .lead}

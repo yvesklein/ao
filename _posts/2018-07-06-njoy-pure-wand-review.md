@@ -23,13 +23,29 @@ At least not yet. Try a curved-n-bulbed glass toy, tons of which can be had at a
 
 ![](/uploads/njoy_h.png)
 
-When I’ve heated the Pure Wand and have it slicked with lube that melts on contact, and finally press it inside me, the weight behind that first dip is wonderful. It’s a unique sensation that accompanies penetration when compared to other toys that I have to push or maneuver myself onto (the shape of each toy is obviously a factor here too).
+### What it's like
+
+Stainless steel is, of course, as hard as hard gets. The Pure Wand is heavy enough that if I didn't know it was a sex toy, I might think it was a weapon for a modified version of escrima or something. I don't find it too heavy to use, or even tiring (for my hands/arms), but I don't have any mobility issues. YMMV. Glass and wood toys like the Pure Wand exist and are much lighter.
+
+It's shiny as fuck, as you can see above. 
+
+It's already sexy, but when you warm it up and put lube on it, the sight of the heat-quickened lube is even sexier.
+
+### How it feels
+
+When I’ve heated the Pure Wand and have it slicked with lube that melts on contact, and finally press it inside me, the hot weight behind that first contact and dip is wonderful. It’s a unique sensation that accompanies penetration when compared to other toys that I have to push or maneuver myself onto (the shape of each toy is obviously a factor here too). When I actually get into a rhythm with it, the focused stimulation brushes particular points along my front wall/urethral sponge. I can go back and forth over those with small movements, repeatedly press into any spot, and/or relax my vaginal opening and thrust with long strokes where the Pure Wand almost comes out. Either way, I'm losing my breath, *fast*, and it feels fucking fantastic. It's what I dreamed of when using my Gläs dildo; that big bulb does so much. It makes all the difference.
+
+The small end is useful to me for anal(though I haven't done much with it) and for a bit of super-focused stimulation when I'm not too sensitive. I can only take so much of it, though, because it's too focused to be as pleasurable inside me as the larger end.
 
 The Pure Wand settles inside me along its curve, which allows for intense-feeling sensation without a lot of work. I find myself moving my hand less than an inch or so when I find a spot I like. Whichever end acts as the handle, I can use to move the bulb inside me around (literally, like in ellipses or circles), or from side to side. And, of course, there's good-ol' thrusting. Depending on the angle I hold the Wand at, thrusting is more or less 'disruptive' internally.
 
 And what the fuck does that mean? Imagine two different angles for thrusting. You can sort of navigate your internal curves and by-ways with the head of the curve of the Pure Wand itself ... or you can keep the Wand's curve stationary while you move the toy in and out. The second one ends up hooking or digging into your walls a lot more heavily. One advantage that the gentler curve of a dildo shaped like my Gläs is that fast, smooth thrusting is more of a practical possibility with it.
 
 I find the Pure Wand a good deal more enjoyable if I heat it up before use. Even better is using the small end(or another dildo) to warm up, then using the big end. Some people use a vibrator with theirs, but I find that distracting in a way. It helps to actually get a little aroused before playing in earnest ... something I ignored/forgot to do. **To enjoy my Pure Wand, I have to be patient and use small movements**; my first few forays into njoy-land, I was definitely riding on my expectations and habit (manic thrusting I employ\[ed\] with some of my other toys).
+
+### Verdict
+
+Should you get it? Fuck yes[^4].
 
 {: .notice-success}
 You can buy the Pure Wand at [Peepshow Toys](http://www.peepshowtoys.com#oid=91554_4244), [Vibrant](https://www.bevibrant.com/products/njoy-pure-wand-dildo?rfsn=1509055.df2dc&utm_source=refersion&utm_medium=affiliate&utm_campaign=1509055.df2dc), or practically anywhere else.
@@ -39,3 +55,5 @@ You can buy the Pure Wand at [Peepshow Toys](http://www.peepshowtoys.com#oid=915
 [^2]: Most notably [Hey Epiphora](https://heyepiphora.com/2010/07/my-love-the-pure-wand-plus-a-few-tips).
 
 [^3]: Gläs makes cheap toys in a few good shapes, and on Etsy there are decently-priced options as well. Plus, you can even get something custom. Otherwise, there are usually curved glass toys available wherever you buy toys. And of course, there's Icicles by Pipedream, but Pipedream sucks. It's your decision though.
+
+[^4]: So long as you like or are curious about stimulating your internal "spots."

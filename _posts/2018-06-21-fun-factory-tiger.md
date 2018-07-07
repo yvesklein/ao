@@ -5,7 +5,7 @@ tags:
 title: Fun Factory Tiger Review
 date: 2018-06-21 00:00:00 +0000
 hero: "/uploads/fun_l.png"
-overlay: red
+overlay: orange
 ---
 The Tiger had intrigued me for months before I finally bought it.
 {: .lead}
