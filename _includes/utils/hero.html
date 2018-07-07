@@ -22,7 +22,6 @@ It also needs both :before and :after pseudoclasses to work, that's the only way
 {% assign hero = site.hero.placeholder %}
 {% endif %}
 
-
 {% if post.overlay != nil %}
 
 {% if post.overlay == "red" %}{% assign overlay = "rgba(255,0,100," %}{% endif %}
@@ -32,10 +31,10 @@ It also needs both :before and :after pseudoclasses to work, that's the only way
 {% if post.overlay == "orange" %}{% assign overlay = "rgba(255,100,0," %}{% endif %}
 
 {% else %}
-{% assign overlay = "rgba(0,0,0,.9)" %}
+{% assign overlay = "rgba(0,0,0,.8)" %}
 {% endif %}
 
-{% assign opacity = "0.9)" %}
+{% assign opacity = "0.8)" %}
 
 
 <style>
@@ -45,7 +44,7 @@ It also needs both :before and :after pseudoclasses to work, that's the only way
   .{{ post.url | remove: '/posts/' }}::before {
     background-image: url('{{ hero }}');
     background-size: cover;
-    -webkit-filter: brightness(0.9) contrast(0.85);
+    -webkit-filter: grayscale(1) brightness(0.5) contrast(0.5);
 
     content:'';
     position:absolute;
@@ -61,10 +60,12 @@ It also needs both :before and :after pseudoclasses to work, that's the only way
     left: 0;
     top: 0;
 
+    background-color: {{ overlay }}{{ opacity }};
+
     /*mix-blend-mode: darken;
     mix-blend-mode: color-burn;
     mix-blend-mode: hard-light;*/
-    mix-blend-mode: color-burn;
+    mix-blend-mode: overlay;
     z-index: -1;
   }
 
