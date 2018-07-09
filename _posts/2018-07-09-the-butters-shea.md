@@ -38,4 +38,4 @@ Should you buy this lube? I think that if you don't need a lot of lube, just som
 I, for one, can't wait to try the cocoa butter version.
 
 {: .notice-success}
-Buy The Butters products at https://getthebutters.com/ or at any of their [retail partners](https://getthebutters.com/retail-partners-1).
+Buy The Butters products at [their website](https://getthebutters.com/) or at any of their [retail partners](https://getthebutters.com/retail-partners-1).
