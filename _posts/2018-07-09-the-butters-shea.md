@@ -1,5 +1,10 @@
 ---
-published: false
+published: true
+layout: post
+tags:
+  - review
+hero: /uploads/sheabutters.jpg
+overlay: blue
 ---
 It smells damn good, that's for sure.
 {: .lead}
