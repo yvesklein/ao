@@ -5,15 +5,7 @@ title: How I got this damn thing(website) working
 hero: uploads/htmlshot.jpg
 overlay: green
 ---
----
-layout: post
-title: 'How I got this damn thing(website) working'
-hero: 'uploads/htmlshot.jpg'
-overlay: green
-published: true
----
-
-# Here's how *solochro.me* works, for the curious
+Here's how *solochro.me* works, for the curious.
 {: .lead}
 
 <!--break-->
