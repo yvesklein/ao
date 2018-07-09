@@ -5,6 +5,7 @@ tags:
   - review
 hero: /uploads/sheabutters.jpg
 overlay: blue
+title: The Butters Aloe x Shea Lube Review
 ---
 It smells damn good, that's for sure.
 {: .lead}
@@ -19,7 +20,7 @@ A huge perk of the Butters’ lube is its cost. Compared to other premium lubric
 
 And in the critical categories, The Butters Shea lube definitely works well in my experience. I like using it most with hard toys like glass and steel dildos, especially when I’ve taken the extra step to warm them up. The Butters melts on contact and the aroma lifts into the air and damn, not only is the feel of the heat and the liquified lube nice, it smells lovely too. 
 
-{: .notice-warning}
+{: .notice-alert}
 There are some caveats to all oil-based lubes based on your needs. Oil-based lubricants can break down condoms, or can (like all lubricants) contain ingredients that might cause reactions or breakouts on skin.
 Before trying The Butters, I used coconut oil. I’ve got plans to work on/test out liquid oil-based lubricants in the future, since I do seem to like the liquid state more than the creaminess of The Butters…at rest, if you will. But  of course, straight oil has its issues. The Butters’ creaminess is actually useful in that you can have the lube stay put until you get going. When you've got a dildo slicked with coconut oil...time is of the essence (drip...drip).
 
