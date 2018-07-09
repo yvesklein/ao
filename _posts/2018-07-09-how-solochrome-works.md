@@ -1,7 +1,22 @@
 ---
 published: true
+layout: post
+title: How I got this damn thing(website) working
+hero: uploads/htmlshot.jpg
+overlay: green
 ---
+---
+layout: post
+title: 'How I got this damn thing(website) working'
+hero: 'uploads/htmlshot.jpg'
+overlay: green
+published: true
+---
+
 # Here's how *solochro.me* works, for the curious
+{: .lead}
+
+<!--break-->
 
 - Hosting: Netlify + Github
   - Free. Automatic. Works. Wish I'd known Microsoft was acquiring Github though, because I would've used Gitlab instead. Might change over in the future, recommend that you start with Gitlab if you aren't tethered to Github already.
