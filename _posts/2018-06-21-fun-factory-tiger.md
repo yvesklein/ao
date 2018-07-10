@@ -15,11 +15,9 @@ As my first and only Fun Factory toy so far, I didn’t know what to expect w/r/
 
 ### What it's like
 
-The shaft is flexible, yet doesn’t yield much to pressure. The Tiger isn’t a small toy, either, so the flexibility helps without taking away from one’s experience of Tiger’s 1.75” ø[^1](Diameter.). On the other hand, this isn’t the toy for pressuring whatever internal spot makes your jaw drop. You can stroke the fuck out of it with that crowning ridge, though! The silicone is slick, not matte or grainy, which lets the raised texture of the Tiger come through without irritation. It doesn’t ‘eat’ lube like I’ve read that some of FF’s matte silicone can do.
+The shaft is flexible, yet doesn’t yield much to pressure. The Tiger isn’t a small toy, either, so the flexibility helps without taking away from one’s experience of Tiger’s 1.75” ø[^1]. On the other hand, this isn’t the toy for pressuring whatever internal spot makes your jaw drop. You can stroke the fuck out of it with that crowning ridge, though! The silicone is slick, not matte or grainy, which lets the raised texture of the Tiger come through without irritation. It doesn’t ‘eat’ lube like I’ve read that some of FF’s matte silicone can do.
 
 But does the texture feel good?
-
-![](/uploads/fun_d.png)
 
 ### How it feels
 
@@ -34,3 +32,5 @@ The Tiger is good for anyone that likes texture, I think, and the price isn't ba
 
 {: .notice-success}
 You can grab the Tiger from [Fun Factory](https://us.funfactory.com/en/dildos/tiger/) or at [SheVibe](https://shevibe.com/fun-factory-tiger-silicone-dildo-red#oid=1432_1).
+
+[^1]: Diameter.
