@@ -1,11 +1,11 @@
 ---
 layout: post
 title: njoy Pure Wand Review
-date: 2018-07-06 04:00:00 +0000
+date: '2018-07-06 04:00:00 +0000'
 tags:
-- review
-hero: "/uploads/njoy_s.png"
-published: 'true'
+  - review
+hero: /uploads/njoy_s.png
+published: true
 overlay: red
 ---
 I'd placed the box in my nightstand before I'd even used it.
@@ -48,7 +48,7 @@ I find the Pure Wand a good deal more enjoyable if I heat it up before use. Even
 Should you get it? Fuck yes[^4].
 
 {: .notice-success}
-You can buy the Pure Wand at [Peepshow Toys](http://www.peepshowtoys.com#oid=91554_4244), [Vibrant](https://www.bevibrant.com/products/njoy-pure-wand-dildo?rfsn=1509055.df2dc&utm_source=refersion&utm_medium=affiliate&utm_campaign=1509055.df2dc), or practically anywhere else.
+You can buy the Pure Wand at [Peepshow Toys](http://www.peepshowtoys.com#oid=91554_4244), [Vibrant](https://www.bevibrant.com/products/njoy-pure-wand-dildo?rfsn=1509055.df2dc&utm_source=refersion&utm_medium=affiliate&utm_campaign=1509055.df2dc), [SheVibe](https://shevibe.com/njoy-pure-wand-double-ended-steel-dildo.aspx#oid=1432_1) or practically anywhere else.
 
 [^1]: My first attempt at reviewing the Pure Wand contained sentences like: "As surprising as it may be, at this point in time, I can definitely say I’ve had a better time with my Gläs toy than with my Pure Wand."
 
