@@ -21,6 +21,8 @@ A blue would have been cool, though, what with the name “Tsunami” …
 
 Beauty aside, the silicone is flawless. There’s no difference in my Tsunami today versus the day I received it.  
 
+[!](/uploads/tsun_l.png)
+
 ## How it feels
 
 The Tsunami was the dildo I got after my first toy ever, a Doc Johnson jelly nasty-tower 8" long with balls. I remember I got it in part because it came with a vibrator, which I'd never had before. A two-fer, in a sense. The jelly dildo was nothing compared to the Tsunami and I wasn't expecting all that the Tsunami brought as I used it again and again.
@@ -34,10 +36,10 @@ Tsunami really showed me how good internal stimulation is for me, something I ha
 I honestly think that anyone who likes vaginal stimulation at all should get the Tsunami. If you only use insertables anally, maybe skip it unless you know very firm silicone can work for you there. It doesn't for me, but the Tsunami more than makes up for that with how goddamn fantastic it is otherwise.
 
 {: .notice-success}
-Go ahead and grab the Tsunami in Strawberry or Purple Haze at [Tantus](https://www.tantusinc.com/products/tsunami?rfsn=1509054.ecb2e1).
+Go ahead and grab the Tsunami in Strawberry or Purple Haze at [**Tantus**](https://www.tantusinc.com/products/tsunami?rfsn=1509054.ecb2e1).
 
 ### What else is there?
-	There are a ton of textured dildos by Tantus, if you like what the Tsunami has to offer but want something less intense.
+There are a ton of textured dildos by Tantus, if you like what the Tsunami has to offer but want something less intense.
     
 - [The Goddess](https://www.tantusinc.com/products/goddess?rfsn=1509054.ecb2e1)
 - [The Echo](https://www.tantusinc.com/search?type=product&x=0&y=0&q=echo&rfsn=1509054.ecb2e1)
