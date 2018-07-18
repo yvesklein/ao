@@ -21,7 +21,7 @@ A blue would have been cool, though, what with the name “Tsunami” …
 
 Beauty aside, the silicone is flawless. There’s no difference in my Tsunami today versus the day I received it.  
 
-[!](/uploads/tsun_l.png)
+![](/uploads/tsun_l.png)
 
 ## How it feels
 
