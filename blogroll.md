@@ -1,3 +1,8 @@
+---
+layout: page
+title: Blogroll
+permalink: /blogroll/
+---
 # Blogroll
 
 My favorite blogs for sex stuff.
