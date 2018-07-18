@@ -1,7 +1,8 @@
 ---
-published: true
+published: false
 ---
-It’s wavy. {: .lead}
+It’s wavy. 
+{: .lead}
 
 <!--break-->
 
@@ -23,7 +24,10 @@ Tsunami really showed me how good internal stimulation is for me, something I ha
 
 
 ## Should you get it?
-I honestly think that anyone who likes vaginal stimulation at all should get the Tsunami. If you only use insertables anally, maybe skip it unless you know very firm silicone can work for you there. It doesn't for me, but the Tsunami more than makes up for that with how goddamn fantastic it is otherwise. 
+I honestly think that anyone who likes vaginal stimulation at all should get the Tsunami. If you only use insertables anally, maybe skip it unless you know very firm silicone can work for you there. It doesn't for me, but the Tsunami more than makes up for that with how goddamn fantastic it is otherwise.
+
+{: .notice-success}
+Go ahead and grab the Tsunami in Strawberry or Purple Haze at [Tantus](https://www.tantusinc.com/products/tsunami?rfsn=1509054.ecb2e1).
 
 ### What else is there?
 	There are a ton of textured dildos by Tantus, if you like what the Tsunami has to offer but want something less intense.
