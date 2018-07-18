@@ -1,9 +1,9 @@
 ---
 title: Toybox
 layout: page
-date: 2018-07-06 23:25:54 +0000
+date: '2018-07-06 23:25:54 +0000'
 permalink: toybox
-published: 'true'
+published: true
 ---
 
 ## Toybox
@@ -16,13 +16,15 @@ published: 'true'
 - [**njoy Pure Wand**](https://www.solochro.me/posts/njoy-pure-wand)
 - [**Tantus Echo**](https://www.solochro.me/posts/tantus-echo)
 - [**Tantus Echo Super Soft**](https://www.solochro.me/posts/tantus-echo)
-- Tantus Tsunami
+- [**Tantus Tsunami**](https://www.solochro.me/posts/tantus-tsunami)
 
-### Vibrators
+### External Vibrators
+- Swan Wand
 - We-Vibe Touch
+- Iroha Zen
 
 ### Suction Toys
 - Womanizer Starlet
 
 ### Butt Toys
-- Tantus Ripple
+- [**Tantus Ripple**](http://www.solochro.me/posts/tantus-ripple)
