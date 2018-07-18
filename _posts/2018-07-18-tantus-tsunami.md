@@ -1,5 +1,12 @@
 ---
-published: false
+published: true
+layout: post
+tags:
+  - review
+date: '2018-07-18 00:00:00 +0000'
+hero: /uploads/tsun_l.png
+title: Tantus Tsunami Review
+overlay: red
 ---
 It’s wavy. 
 {: .lead}
