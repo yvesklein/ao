@@ -23,6 +23,8 @@ Surprisingly(to me, anyway), I really enjoy even going from bead #1 to #2. 2 to 
 
 Tantus isn’t the only manufacturer of this type of anal toy: like their Silk series, there are several companies that make comparable options. Thing is, Tantus silicone and ethical standing is top-notch, where some of the other bead-dildo types of toys don’t come from companies that exclusively produce body-safe toys by hand, in the USA. Tantus is also widely available and the chances of getting a Ripple at a good price is pretty high. BS Atelier, another excellent company, makes a slightly thicker toy with a similar profile, the Bobó. It’s pretty, but it’s a bit more expensive than the Ripple large on Shevibe. It’s justifiable, though: one big leg-up the Bobó does have over both Ripples is the bar-type base, allowing for comfortable wear between the cheeks. Additionally, it comes in rainbow(!) and doesn’t have the length of the Ripple (l) while approaching its maximum width (1.25” vs 1.5”). More length can be uncomfortable or undesireable in anal toys, so I see this as a plus. I definitely can’t, and wouldn’t like to, take over 6” of the Ripple large to get the benefit of that last 1.5”-thick bead.
 
+![](/uploads/rip_t.png)
+
 I definitely bought the Ripple with ‘sizing up’ in mind; I’d never played with appropriately-sized anal toys before, and thought the graduated-bead approach would be manageable in ways that a tapered dildo/plug would not be. This is true, I think, but the Ripple does end up delivering a pleasure all its own that makes it a worthwhile buy. It’s a perfect gentle warm up, it feels good, it’s fun and interesting to play with the bloops, and it comes with all the inherent benefits of Tantus toys.
 
 ### Verdict
