@@ -4,7 +4,7 @@ layout: post
 hero: /uploads/hand_rose.jpg
 tags:
   - article
-overlay: orange
+overlay: red
 ---
 # An Orgasm By Any Other Name
 
@@ -34,7 +34,7 @@ So how do I even determine when I'm "done" with sex? Basically when I get tired 
 
 #### Except...(an aside[^4])
 
-Before I had toys, I masturbated by sort-of planking with my fists(and a balled-up t-shirt or whatever) and grinding onto my mons veneris/clitoral shaft/bridge area. I could build the tension in small bursts, 'til finally I would get a few bigger flashes of pleasure. And then I'd feel pretty much "done," though sometimes I'd so this repeatedly. Christian guilt aside, I felt broken in many ways for masturbating this way. It always struck me as bizarre.
+Before I had toys, I masturbated by sort-of planking with my fists(and a balled-up t-shirt or whatever) and grinding onto my mons veneris/clitoral shaft/bridge area. I could build the tension in small bursts, 'til finally I would get a few bigger flashes of pleasure. And then I'd feel pretty much "done," though sometimes I'd do this repeatedly before I felt satisfied. Christian guilt aside, I felt broken in many ways for masturbating this way. It always struck me as bizarre.
 
 Despite the fact that this mode of masturbation seems to fit the sexual response cycle more "typically," or closer to the way I want to, it's never been good enough in my mind.
 
