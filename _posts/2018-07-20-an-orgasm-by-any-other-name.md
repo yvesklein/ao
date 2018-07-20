@@ -1,5 +1,9 @@
 ---
 published: false
+layout: post
+hero: /uploads/hand_rose.jpg
+tags:
+  - article
 ---
 # An Orgasm By Any Other Name
 
