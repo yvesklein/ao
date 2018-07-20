@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 layout: post
 hero: /uploads/hand_rose.jpg
 tags:
@@ -59,4 +59,3 @@ Photo by [Daniel Apodaca](https://unsplash.com/photos/8lXq1AesPv4?utm_source=un
 [^3]: pun intended.
 [^4]: don't question my commitment to the Shakespeare theme.
 [^5]: this is from RaeDMagdon's ['Married Life'](https://archiveofourown.org/works/12136149). I edited the characters' names out, just to focus on the sexual content.
-
