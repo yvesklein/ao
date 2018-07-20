@@ -4,11 +4,11 @@ layout: post
 hero: /uploads/hand_rose.jpg
 tags:
   - article
-overlay: purple
+overlay: orange
 ---
 # An Orgasm By Any Other Name
 
-... would it feel as sweet? I don't seem to think so.
+... would it feel as sweet? Deep down, I don't seem to think so.
 
 {: .lead}
 
