@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 layout: post
 tags:
   - review
@@ -8,6 +8,9 @@ overlay: purple
 title: We-Vibe Touch Review
 ---
 The We-Vibe Touch is a quality vibrator. Along with the Tango, it’s praised all over the sex toy world. My thoughts are a little different.
+{: .lead}
+
+<!--break-->
 
 Now, the main reason I’d like to write a different sort of review on the Tango/Touch is because of how good they are. *Tons* of people love the motor these vibrators share to death(la petite mort). This is great for them, but I do think there are a few caveats that ought to be noted before one springs for either toy.
 
@@ -28,11 +31,15 @@ The silicone is matte and silky. We-Vibe is right, it does feel good on my body(
 
 The first thing the Touch showed me was that it will not be held back by its size. It's strong as fuck, and the vibrations go deep. There are patterns, and I like the one that ramps up and down continously...but overall? It's not for me. I can feel the strength, yes. I can only really even use it on the first setting–*maybe* the second[^2]. At one point I was trying to train myself to be able to tolerate the Touch, but I realized I don't have to do that–I'm just one of the few when it comes to this toy.
 
-My personal qualm with the Touch is just that it doesn’t seem to be what my clit really wants or likes. It numbs my clit and vulva somewhat, and even gives me that itchy feeling that is admittedly about 70 time worse with buzzy vibes like the Tantus bullet. So far, it’s my only 'luxury' external vibrator (and was my first) so, in the end, I probably had to just jump for a toy and start to learn what my vibration preferences were. I think it’s just too strong and firm for me, so I’ve started looking at what might be a good attempt #2. The only other vibrator I've owned is the Tantus bullet.
+My personal qualm with the Touch is just that it doesn’t seem to be what my clit really wants or likes. It numbs my clit and vulva somewhat, and can even give me that itchy feeling that is admittedly about seventy times worse with buzzy vibes like the Tantus bullet.
+
+So far, it’s my only 'luxury' external vibrator (and was my first) so, when I was shopping for a vibrator, I just had jump for a toy and start to learn what my vibration preferences were. I think it’s just too strong and firm for me, so I’ve started looking at what might be a good attempt #2. The only other vibrator I've owned is that Tantus bullet.
 
 #### What I have gotten from it
 
-The Touch taught me that I like more pinpoint vibrations over broad stimulation, and that I still like to be able to use pressure even with vibrations. Most ~~clitically~~ critically, though, I’ve got a hunch that I’d like a less-powerful vibrator, which isn’t something one hears a lot in the sex toy world. With pinpoint, I actually get that fluttery-electric-glowy[^3] feeling in my clit from the vibrations, whereas when I try broad stim I just...feel like something is vibrating against my clit ... no different from if it were on my knee or ear.
+The Touch taught me that I like more pinpoint vibrations over broad stimulation, and that I still like to be able to use pressure even with vibrations. I think I like it most when I use it just on my mons veneris, where my clitoral shaft is below the surface. 
+
+Most ~~clitically~~ critically, though, I’ve got a hunch that I’d like a less-powerful vibrator, which isn’t something one hears a lot in the sex toy world. With pinpoint, I actually get that fluttery-electric-glowy[^3] feeling in my clit from the vibrations, whereas when I try broad stim I just...feel like something is vibrating against my clit ... no different from if it were on my knee or ear.
 
 What I like most about the Touch is its shape, which allows for a lot of experimentation as to what size range suits you best, and where. It's a real resource if you don't know what you like yet. Pinpoint here, use the back for broad, use the side/spoon-shaped front to cup or cradle your clitoris. So many options!
 
@@ -48,4 +55,3 @@ You can buy the We-Vibe Touch or Tango from [Vibrant](https://www.bevibrant.com/
 [^1]: I've read posts from Dangerous Lilly and Miss Ruby that mention their problems with their *multiple* Tangos' charger/battery life. There are also notes from Epiphora and theNotice regarding the issues with We-Vibe motors, rumbly as they may be.
 [^2]: Apparently I have a sensitive clit.
 [^3]: IT'S HARD TO DESCRIBE PHYSICAL FEELINGS, OKAY? And also, it's not necessarily pleasurable; it's close, and it's intense...but it's not the same as the feelings I get that I *would* say are purely pleasureable.
-
