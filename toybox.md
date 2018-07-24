@@ -34,3 +34,6 @@ hero: uploads/bowl_sausages.jpg
 ### Butt Toys
 - [**Tantus Ripple**](http://www.solochro.me/posts/tantus-ripple)
 - Tantus Touchdown*
+
+{: .notice}
+Photo by Charles Deluvio 🇵🇭🇨🇦 on Unsplash
