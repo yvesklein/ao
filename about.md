@@ -40,7 +40,7 @@ Call me ~~by your name~~ Jean. I'm a cis[^1] lesbian in my 20's. Apart from bein
 
 > How can I/my company work with you?
 
-Please have a look at my [policies page](www.solochro.me/policies), then contact me at hello@solochro.me.
+Please have a look at my [policies page](/policies), then contact me at [solochrome@tuta.io](mailto:solochrome@tuta.io).
 
 [^1]:
 	I'll be writing about this. But for now, that's my answer.
