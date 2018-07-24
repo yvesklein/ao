@@ -29,7 +29,7 @@ The silicone is matte and silky. We-Vibe is right, it does feel good on my body(
 
 #### About the vibrations, though...
 
-The first thing the Touch showed me was that it will not be held back by its size. It's strong as fuck, and the vibrations go deep. There are patterns, and I like the one that ramps up and down continously...but overall? It's not for me. I can feel the strength, yes. I can only really even use it on the first setting–*maybe* the second[^2]. At one point I was trying to train myself to be able to tolerate the Touch, but I realized I don't have to do that–I'm just one of the few when it comes to this toy.
+The first thing the Touch showed me was that it will not be held back by its size. It's strong as fuck, and the vibrations go deep. There are patterns, and I like the one that ramps up and down continuously...but overall? It's not for me. I can feel the strength, yes. I can only really even use it on the first setting–*maybe* the second[^2]. At one point I was trying to train myself to be able to tolerate the Touch, but I realized I don't have to do that–I'm just one of the few when it comes to this toy.
 
 My personal qualm with the Touch is just that it doesn’t seem to be what my clit really wants or likes. It numbs my clit and vulva somewhat, and can even give me that itchy feeling that is admittedly about seventy times worse with buzzy vibes like the Tantus bullet.
 
