@@ -4,6 +4,7 @@ layout: page
 date: '2018-07-06 23:25:54 +0000'
 permalink: toybox
 published: true
+hero: uploads/bowl_sausages.jpg
 ---
 
 # Toybox
@@ -11,8 +12,6 @@ published: true
 ---
 
 **Bold** means there's a linked review, and an asterisk means there's a review in progress.
-
-![](/uploads/bowl_sausages.jpg)
 
 ### Dildos
 
@@ -34,4 +33,4 @@ published: true
 
 ### Butt Toys
 - [**Tantus Ripple**](http://www.solochro.me/posts/tantus-ripple)
-- Tantus Touchdown*!
+- Tantus Touchdown*
