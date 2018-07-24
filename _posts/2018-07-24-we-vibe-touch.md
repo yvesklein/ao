@@ -12,7 +12,7 @@ The We-Vibe Touch is a quality vibrator. Along with the Tango, it’s praised al
 
 <!--break-->
 
-Now, the main reason I’d like to write a different sort of review on the Tango/Touch is because of how good they are. *Tons* of people love the motor these vibrators share to death(la petite mort). This is great for them, but I do think there are a few caveats that ought to be noted before one springs for either toy.
+Now, the main reason I’d like to write a different sort of review on the Tango/Touch is because of how positive the typical review is. *Tons* of people love the motor these vibrators share to death(la petite mort). This is great for them, but I do think there are a few caveats that ought to be noted before one springs for either toy.
 
 1. There are some fairly-commonly reported issues regarding the lifespan of the T/T motor.
 2. The charger is notoriously finicky and problem-prone.
