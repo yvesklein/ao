@@ -9,6 +9,8 @@ published: true
 ## Toybox
 **Bold** means there's a linked review, and an asterisk means there's a review in progress.
 
+[A bowl full of mini sausages.](/uploads/bowl_sausages.jpg)
+
 ### Dildos
 
 - [**Fun Factory Tiger**](https://www.solochro.me/posts/fun-factory-tiger)
@@ -29,4 +31,5 @@ published: true
 
 ### Butt Toys
 - [**Tantus Ripple**](http://www.solochro.me/posts/tantus-ripple)
-- Tantus Touchdown*
+- Tantus Touchdown*!
+
