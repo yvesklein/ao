@@ -24,7 +24,7 @@ hero: uploads/bowl_sausages.jpg
 
 ### External Vibrators
 - Swan Wand
-- We-Vibe Touch
+- [**We-Vibe Touch**](https://www.solochro.me/posts/we-vibe-touch)
 - Iroha Zen*
 - Screaming O! Tri-It*
 
@@ -34,4 +34,3 @@ hero: uploads/bowl_sausages.jpg
 ### Butt Toys
 - [**Tantus Ripple**](http://www.solochro.me/posts/tantus-ripple)
 - Tantus Touchdown*
-
