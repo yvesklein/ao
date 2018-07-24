@@ -1,6 +1,6 @@
 ---
 title: Toybox
-layout: post
+layout: page
 date: '2018-07-06 23:25:54 +0000'
 permalink: toybox
 published: true
@@ -35,5 +35,3 @@ hero: uploads/bowl_sausages.jpg
 - [**Tantus Ripple**](http://www.solochro.me/posts/tantus-ripple)
 - Tantus Touchdown*
 
-{: .notice}
-Photo by Charles Deluvio 🇵🇭🇨🇦 on Unsplash
