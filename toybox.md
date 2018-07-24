@@ -6,7 +6,10 @@ permalink: toybox
 published: true
 ---
 
-## Toybox
+# Toybox
+
+---
+
 **Bold** means there's a linked review, and an asterisk means there's a review in progress.
 
 ![](/uploads/bowl_sausages.jpg)
