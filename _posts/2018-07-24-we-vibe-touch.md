@@ -3,8 +3,9 @@ published: false
 layout: post
 tags:
   - review
-hero: /uploads/
+hero: /uploads/touch.jpg
 overlay: purple
+title: We-Vibe Touch Review
 ---
 The We-Vibe Touch is a quality vibrator. Along with the Tango, it’s praised all over the sex toy world. My thoughts are a little different.
 
@@ -18,7 +19,10 @@ I haven’t experienced either of these problems myself. My Touch has, on occasi
 
 ### How it feels
 
-The silicone is matte and silky. We-Vibe is right, it does feel good on my body(anywhere), and the slight give in the silicone makes it a more comfortable experience for me, since I like pressing vibrators into my clit. 
+The silicone is matte and silky. We-Vibe is right, it does feel good on my body(anywhere), and the slight give in the silicone makes it a more comfortable experience for me, since I like pressing vibrators into my clit. I recorded a quick video to show the "squish," if you could call it that. It's not quite squishy, but I guess I'm splitting hairs..
+
+<iframe src="https://player.vimeo.com/video/281528794" width="640" height="360" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe>
+<p><a href="https://vimeo.com/281528794">We-Vibe Touch Squish Test</a> from <a href="https://vimeo.com/solochrome">Jean Solo</a> on <a href="https://vimeo.com">Vimeo</a>.</p>
 
 #### About the vibrations, though...
 
