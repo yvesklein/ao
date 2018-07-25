@@ -21,6 +21,7 @@ hero: uploads/bowl_sausages.jpg
 - [**Tantus Echo**](https://www.solochro.me/posts/tantus-echo)
 - [**Tantus Echo Super Soft**](https://www.solochro.me/posts/tantus-echo)
 - [**Tantus Tsunami**](https://www.solochro.me/posts/tantus-tsunami)
+- Tantus Slow Drive*
 
 ### External Vibrators
 - Swan Wand
