@@ -1,3 +1,10 @@
+---
+layout: page
+title: Policies
+permalink: /policies/
+published: true
+---
+
 # Policies
 
 ## What I do
