@@ -21,26 +21,26 @@ Pretty rad.
 {: .notice-success}
 Use the code SOLO for 10% off your order at Vibrant.
 
-## [Peepshow Toys](http://www.peepshowtoys.com#oid=91554_4244)
+## [Peepshow Toys](https://www.peepshowtoys.com#oid=91554_4244)
 
 Like Vibrant, [Peepshow Toys](http://www.peepshowtoys.com#oid=91554_4244) exclusively stocks non-porous, body-safe toys. They support the sex blogging community beautifully and have a great curated selection of toys, lube, and other accesories.
 
-## [Shevibe](www.shevibe.com)
+## [Shevibe](https://shevibe.com/#oid=1432_1)
 
 Perhaps the biggest and most beloved retailer in the sex blogger world. They have some porous toys, but only stock pthalate-free material in that area. Otherwise, they have a huge selection of body safe toys and their prices are good to boot. Their distinctive comic-style branding is awesome and they have a lot of unique product offerings (*adult* coloring books, for example). Often the first place I see many bloggers point people looking for toys because they have so many!
 
-## [Luvoqa](www.luvoqa.com)
+## [Luvoqa](https://www.luvoqa.com?rfsn=1579286.b8ca9d)
 
 Another strictly body-safe, non-porous retailer with a carefully put-together selection of toys and accessories. They're inclusive and professional, and offer free ground shipping on all orders. That's bomb. 
 
 {: .notice-success}
 Use the code SOLO for fast 2-3 day shipping on orders above $75.
 
-## [Smitten Kitten](www.smittenkittenonline.com)
+## [Smitten Kitten](https://www.smittenkittenonline.com)
 
 A smaller indie shop based in Minnesota. Inclusive, body-safe exclusive, and stocks some toys you can't find many other places. [They have an awesome focus on education](https://www.smittenkittenonline.com/pages/resources) that I personally really appreciate.
 
-## [Unbound](www.unboundbabes.com)
+## [Unbound](https://www.unboundbabes.com)
 
 Small selection of body-safe toys, but with a very accessible presentation and branding that sets them apart. They offer a subscription box, which I've not seen from other retailers, so if that's your thing...
 
