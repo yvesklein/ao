@@ -29,6 +29,16 @@ Like Vibrant, [Peepshow Toys](http://www.peepshowtoys.com#oid=91554_4244) exclus
 
 Perhaps the biggest and most beloved retailer in the sex blogger world. They have some porous toys, but only stock pthalate-free material in that area. Otherwise, they have a huge selection of body safe toys and their prices are good to boot. Their distinctive comic-style branding is awesome and they have a lot of unique product offerings (*adult* coloring books, for example). Often the first place I see many bloggers point people looking for toys because they have so many!
 
+Best artwork in the game.
+
+<a href='http://shevibe.com#oid=1432_1_banner_66' target='_new' ><img src='https://shevibe.myomnistar.com/banner.php?id=66_1432_1' border='0' height='0' width='0' /><img src='https://shevibe.myomnistar.com/admin/images/banner/new_150_be_pleasured_woman_02_1509982803.jpg' border='0' /></a> <a href='http://shevibe.com#oid=1432_1_banner_67' target='_new' ><img src='https://shevibe.myomnistar.com/banner.php?id=67_1432_1' border='0' height='0' width='0' /><img src='https://shevibe.myomnistar.com/admin/images/banner/new_150_be_sensual_m_1509982826.jpg' border='0' /></a> <a href='http://shevibe.com#oid=1432_1_banner_74' target='_new' ><img src='https://shevibe.myomnistar.com/banner.php?id=74_1432_1' border='0' height='0' width='0' /><img src='https://shevibe.myomnistar.com/admin/images/banner/new_150_be_sultry_1509982990.jpg' border='0' /></a> <a href='http://shevibe.com#oid=1432_1_banner_72' target='_new' ><img src='https://shevibe.myomnistar.com/banner.php?id=72_1432_1' border='0' height='0' width='0' /><img src='https://shevibe.myomnistar.com/admin/images/banner/new_150_be_stimulated_01_1509982937.jpg' border='0' /></a>
+
+## [Spectrum Boutique](https://spectrumboutique.com/)
+
+If SheVibe has the best art in the game, Spectrum has the best web design and graphics. Seriously. Look at them. They also have a good amount of toys that you don't find everywhere else, like BS Atelier toys(one of my favorite toy makers). I appreciate the lower flat-rate shipping for buying accessories, too. 
+
+Join their newsletter for 15% off your first order.
+
 ## [Luvoqa](https://www.luvoqa.com?rfsn=1579286.b8ca9d)
 
 Another strictly body-safe, non-porous retailer with a carefully put-together selection of toys and accessories. They're inclusive and professional, and offer free ground shipping on all orders. That's bomb. 
@@ -42,7 +52,7 @@ A smaller indie shop based in Minnesota. Inclusive, body-safe exclusive, and sto
 
 ## [Unbound](https://www.unboundbabes.com)
 
-Small selection of body-safe toys, but with a very accessible presentation and branding that sets them apart. They offer a subscription box, which I've not seen from other retailers, so if that's your thing...
+Small selection of body-safe toys, but with a very accessible presentation and branding that sets them apart. They offer a subscription box, which I've not seen from other retailers, so if that's your thing...enjoy.
 
 ---
 
