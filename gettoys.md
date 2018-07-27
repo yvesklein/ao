@@ -31,7 +31,7 @@ Perhaps the biggest and most beloved retailer in the sex blogger world. They hav
 
 Best artwork in the game.
 
-<a href='http://shevibe.com#oid=1432_1_banner_66' target='_new' ><img src='https://shevibe.myomnistar.com/banner.php?id=66_1432_1' border='0' height='0' width='0' /><img src='https://shevibe.myomnistar.com/admin/images/banner/new_150_be_pleasured_woman_02_1509982803.jpg' border='0' /></a> <a href='http://shevibe.com#oid=1432_1_banner_67' target='_new' ><img src='https://shevibe.myomnistar.com/banner.php?id=67_1432_1' border='0' height='0' width='0' /><img src='https://shevibe.myomnistar.com/admin/images/banner/new_150_be_sensual_m_1509982826.jpg' border='0' /></a> <a href='http://shevibe.com#oid=1432_1_banner_74' target='_new' ><img src='https://shevibe.myomnistar.com/banner.php?id=74_1432_1' border='0' height='0' width='0' /><img src='https://shevibe.myomnistar.com/admin/images/banner/new_150_be_sultry_1509982990.jpg' border='0' /></a> <a href='http://shevibe.com#oid=1432_1_banner_72' target='_new' ><img src='https://shevibe.myomnistar.com/banner.php?id=72_1432_1' border='0' height='0' width='0' /><img src='https://shevibe.myomnistar.com/admin/images/banner/new_150_be_stimulated_01_1509982937.jpg' border='0' /></a>
+<a href='http://shevibe.com#oid=1432_1_banner_61' target='_new' ><img src='https://shevibe.myomnistar.com/banner.php?id=61_1432_1' border='0' height='0' width='0' /><img src='https://shevibe.myomnistar.com/admin/images/banner/new_150_be_a_boss_1509982535.jpg' border='0' /></a>
 
 ## [Spectrum Boutique](https://spectrumboutique.com/)
 
