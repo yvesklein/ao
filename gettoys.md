@@ -31,7 +31,7 @@ Perhaps the biggest and most beloved retailer in the sex blogger world. They hav
 
 Best artwork in the game.
 
-<a href='http://shevibe.com#oid=1432_1_banner_61' target='_new' ><img src='https://shevibe.myomnistar.com/banner.php?id=61_1432_1' border='0' height='0' width='0' /><img src='https://shevibe.myomnistar.com/admin/images/banner/new_150_be_a_boss_1509982535.jpg' border='0' /></a>
+<a href='http://shevibe.com#oid=1432_1_banner_90' target='_new' ><img src='https://shevibe.myomnistar.com/banner.php?id=90_1432_1' border='0' height='0' width='0' /><img src='https://shevibe.myomnistar.com/admin/images/banner/new_600_be_pleasured_woman_02_1509983434.jpg' border='0' /></a>
 
 ## [Spectrum Boutique](https://spectrumboutique.com/)
 
