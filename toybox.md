@@ -23,10 +23,13 @@ published: true
 - Tantus Slow Drive*
 
 ### External Vibrators
-- Swan Wand
 - [**We-Vibe Touch**](https://www.solochro.me/posts/we-vibe-touch)
 - [Iroha Zen](https://www.solochro.me/posts/iroha-zen)
 - Screaming O! Tri-It*
+
+### Internal Vibrators
+
+- BMS Swan Wand*
 
 ### Suction Toys
 - Womanizer Starlet
