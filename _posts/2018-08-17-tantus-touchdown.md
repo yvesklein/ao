@@ -2,7 +2,7 @@
 layout: post
 title: Tantus Touchdown Review
 hero: uploads/touch_h.jpg
-overlay: 
+overlay: blue
 tags:
   - review
 ---
