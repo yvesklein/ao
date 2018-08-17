@@ -36,5 +36,5 @@ published: true
 
 ### Butt Toys
 - [**Tantus Ripple**](http://www.solochro.me/posts/tantus-ripple)
-- Tantus Touchdown*
+- [Tantus Touchdown](http://www.solochro.me/posts/tantus-touchdown)
 - Tantus Severin Super Soft, Small
