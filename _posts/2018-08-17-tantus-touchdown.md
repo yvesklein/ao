@@ -41,7 +41,7 @@ I also want to try (and offer up for your perusal) [Tantus' Ace](https://www.tan
 Get the Touchdown if you want a quality plug to wear for other kinds of penetration or masturbation, and aren't looking for long-term wear. If you want long-term, keep looking; [here's a resource to help.](https://squirrelmunkwrites.wordpress.com/2017/12/30/general-butt-plug-recommendations/)
 
 {: .notice-success}
-You can buy the [Tantus Touchdown on their site](https://www.tantusinc.com/collections/plugs/products/touchdown?rfsn=1509054.ecb2e1) only; it's an  exclusive for their store. It comes in purple haze, a shimmery black, and silver. The weekend I'm publishing this, Tantus has a 25% off sale on their plugs, so you can get it(or any other plug, including the [Ripples]) for *$16*. Score.
+You can buy the [Tantus Touchdown on their site](https://www.tantusinc.com/collections/plugs/products/touchdown?rfsn=1509054.ecb2e1) only; it's an  exclusive for their store. It comes in purple haze, a shimmery black, and silver. The weekend I'm publishing this, Tantus has a 25% off sale on their plugs, so you can get it(or any other plug, including the Ripples) for *$16*. Score.
 
 {: .notice}
 Thanks to Tantus for sending me the Touchdown for review.
