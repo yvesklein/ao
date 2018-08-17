@@ -4,7 +4,7 @@ layout: post
 tags:
   - review
 hero: /uploads/touch_h.jpg
-overlay: orange
+overlay: 
 title: Tantus Touchdown Review
 ---
 
