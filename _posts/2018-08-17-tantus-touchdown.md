@@ -1,10 +1,11 @@
 ---
+published: true
 layout: post
-title: Tantus Touchdown Review
-hero: uploads/touch_h.jpg
-overlay: orange
 tags:
   - review
+hero: /uploads/touch_h.jpg
+overlay: orange
+title: Tantus Touchdown Review
 ---
 
 The Touchdown is a winner on almost every front. (I'm entitled to mix metaphors a bit, alright?)

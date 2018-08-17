@@ -4,7 +4,7 @@ layout: post
 hero: /uploads/hand_rose.jpg
 tags:
   - article
-overlay: blue
+overlay: red
 ---
 # An Orgasm By Any Other Name
 
