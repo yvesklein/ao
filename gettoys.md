@@ -25,13 +25,14 @@ Use the code SOLO for 10% off your order at Vibrant.
 
 Like Vibrant, [Peepshow Toys](http://www.peepshowtoys.com#oid=91554_4244) exclusively stocks non-porous, body-safe toys. They support the sex blogging community beautifully and have a great curated selection of toys, lube, and other accesories.
 
+{: .notice-success}
+Use the code SOLO for 10% off your order at Peepshow Toys.
+
 ## [Shevibe](https://shevibe.com/#oid=1432_1)
 
 Perhaps the biggest and most beloved retailer in the sex blogger world. They have some porous toys, but only stock pthalate-free material in that area. Otherwise, they have a huge selection of body safe toys and their prices are good to boot. Their distinctive comic-style branding is awesome and they have a lot of unique product offerings (*adult* coloring books, for example). Often the first place I see many bloggers point people looking for toys because they have so many!
 
-Best artwork in the game.
-
-<a href='http://shevibe.com#oid=1432_1_banner_90' target='_new' ><img src='https://shevibe.myomnistar.com/banner.php?id=90_1432_1' border='0' height='0' width='0' /><img src='https://shevibe.myomnistar.com/admin/images/banner/new_600_be_pleasured_woman_02_1509983434.jpg' border='0' /></a>
+Best artwork in the game, too.
 
 ## [Spectrum Boutique](https://spectrumboutique.com/)
 
