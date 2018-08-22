@@ -26,13 +26,16 @@ published: true
 - [**We-Vibe Touch**](https://www.solochro.me/posts/we-vibe-touch)
 - [Iroha Zen](https://www.solochro.me/posts/iroha-zen)
 - [Screaming O! Tri-It](http://www.solochro.me/posts/tri-it)
+- The Eroscillator*
 
 ### Internal Vibrators
 
 - BMS Swan Wand*
+- We-Vibe Nova*
 
 ### Suction Toys
-- Womanizer Starlet
+- Womanizer Starlet*
+- Womanizer Premium*
 
 ### Butt Toys
 - [**Tantus Ripple**](http://www.solochro.me/posts/tantus-ripple)
