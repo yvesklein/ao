@@ -25,7 +25,7 @@ published: true
 ### External Vibrators
 - [**We-Vibe Touch**](https://www.solochro.me/posts/we-vibe-touch)
 - [Iroha Zen](https://www.solochro.me/posts/iroha-zen)
-- Screaming O! Tri-It*
+- [Screaming O! Tri-It](http://www.solochro.me/posts/tri-it)
 
 ### Internal Vibrators
 
