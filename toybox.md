@@ -43,3 +43,4 @@ Bold means there's a linked review, and an asterisk means there's a review in pr
 - [Tantus Ripple](http://www.solochro.me/posts/tantus-ripple)
 - [Tantus Touchdown](http://www.solochro.me/posts/tantus-touchdown)
 - Tantus Severin Super Soft, Small
+- SquarePeg Egg Plug in SuperSoft Graphite, XS
