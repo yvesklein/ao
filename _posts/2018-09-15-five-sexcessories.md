@@ -12,7 +12,7 @@ Here are five items I find I use a lot when I’m using toys/masturbating in gen
 
 {: .lead}
 
-They’re useful for all kinds of sex! There are wayyy more hugely useful tools–like Liberator Throes instead of towels–that people use, but this list is about stuff you already have.
+They’re useful for all kinds of sex! There are other useful tools–like Liberator Throes instead of towels–that people use, but this list is about stuff you already have.
 
 <!--break-->
 
