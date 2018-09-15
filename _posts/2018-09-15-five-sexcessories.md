@@ -8,7 +8,13 @@ overlay: blue
 title: Five Basic Sexcessories!
 ---
 
-Here are five items I find I use a lot when I’m using toys/masturbating in general. They’re useful for all kinds of sex! There are wayyy more hugely useful tools–like Liberator Throes instead of towels–that people use, but this list is about stuff you already have.
+Here are five items I find I use a lot when I’m using toys/masturbating in general. 
+
+{: .lead}
+
+They’re useful for all kinds of sex! There are wayyy more hugely useful tools–like Liberator Throes instead of towels–that people use, but this list is about stuff you already have.
+
+<!--break-->
 
 - **A couple cloths**: towel(s), hand towel(s), washcloths. I like to wet the washcloths beforehand and use one to wipe my lube-y hands. The other is for wiping myself down if *I’m* lube-y (among other things) just to feel better until I can shower if I need to. Especially with anal play, all the lube necessary doesn’t feel great on my body afterwards.
 
