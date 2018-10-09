@@ -41,7 +41,7 @@ Some basic important information:
 - One male schoolmate attendee has a crush on Henry.
 - Oh, and the now-pastor's wife had an affair with the old pastor before he died from cancer. The current pastor knows.
 
-### ## Content Remarks
+## Content Remarks
 
 ### In the Pool
 
@@ -51,7 +51,7 @@ The movie revolves around the pool and the viewpoints expressed in and near it. 
 - The "Liberal/Progressive" Side
 - Something in the middle, where people that have deep roots in the Christian circle are having those roots tangled in with the progressive side. This isn't a matter of choice for them, as one particular character study shows. It causes incredible pain and confusion. Interestingly, the two widely-suspected gay *and* Christian characters are the ones that get physically hurt–Logan hits his head and the former pastor's kid cuts.
 
-![]({{site.baseurl}}/uploads/chicken.jpg)
+![](/uploads/chicken.jpg)
 
 [*Image: Henry and Logan play in the pool while Henry's father looks on from the grill*]
 
@@ -74,7 +74,7 @@ What we get in the lines and ideas themselves though, is a spectrum of Christian
 
   #### Now That's What I Call Homophobia™!
 
-### ### Honey, I Indoctrinated the Kids
+### Honey, I Indoctrinated the Kids
 
 What is Henry, the pastor's kid, like? The direction of film doesn't really leave too much question on where Henry's sexuality lies. He's by far the least visibly harmed by the homophobia in his surroundings (he has internalized a great deal of it, however). Still, the opening and closing scenes find Henry in his bed, shirtless, with another teen boy. The first time it's his best friend and they masturbate together; at the end it's with Logan. First he apologizes for his behavior during the party. Then he asks if they can kiss.
 
@@ -85,6 +85,10 @@ What is Henry, the pastor's kid, like? The direction of film doesn't really leav
 ![]({{site.baseurl}}/uploads/gaze.jpg)
 
 I think Henry's situation is where a ton of teens and young adults raised Christian that find themselves with an "errant" sexuality or gender identity are at some point. He's still relatively devout, but he's regularly exposed to influences that pull him out of the trenches of the exclusionary dogma of the Church. Henry's main hobby is listening to music and creating a podcast to share music; it's obvious that this is what has afforded him the most mental liberty in his life. It's not an accident that his mother, who apologizes to her daughter on-screen for having shamed her sexuality in the past, shares a special playlist with him. By contrast, the only music that the devout Christians introduce is a forced worship song and sermon. It gets interrupted by a side character that's been cutting his face in the bathroom with razor blades, because his mental health is in tatters. This is due in large part to the way that the community has treated him after several incidents: 1) a vague, supposedly gay "shower incident" on a youth group trip, 2) his suicide attempt, and 3) the death of his father.
+
+Logan is an interesting character, because he's sort of stoic and stalwart in the way that he just...persists through the party. Through getting hurt, through his crush, Henry's rudeness, the alienating rudeness of most of the other partygoers on top of that...Somehow it's just good to see that he *kept going* and that another young queer person encouraged him. The contrast and alliance between him and the young, white, atheist lesbian is great, because it shows that queerness isn't limited to whatever other markers your identity might have.
+
+It's the kind of movie that if I'd stumbled upon it several years earlier (and it had already been made), might have helped some.
 
 ## Personal Affect
 For me, watching this movie was a somewhat unexpected trip back into my not-as-far-away-as-I'd-like past. Its accuracy made it powerful, and I couldn't help practically subtitute the people from my own life that would fit so many of the roles shown in Henry Gamble's Birthday Party. It's one of those movies that took me much longer to finish than the runtime of the film itself, because I kept having to pause and think and react (and write notes). I wish I could show it to people I know from back then. 
