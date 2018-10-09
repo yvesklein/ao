@@ -14,7 +14,7 @@ Wait, I thought this was a toy blog?
 {: .lead}
 
 {: .notice-alert}
-Content warning: homophobia, self-harm/suicide
+Content warning: homophobia, self-harm/suicide. I also basically spoil the whole movie.
 
 <!--break-->
 
