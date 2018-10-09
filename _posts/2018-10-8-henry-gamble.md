@@ -6,7 +6,7 @@ tags:
   - article
 hero: /uploads/hgbp.jpg
 overlay: blue
-title: Obscure Gay Film: Henry Gamble's Birthday Party Review
+title: Obscure Gay Film | Henry Gamble's Birthday Party Review
 ---
 
 Wait, I thought this was a toy blog?
