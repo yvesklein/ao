@@ -51,9 +51,8 @@ The movie revolves around the pool and the viewpoints expressed in and near it. 
 - The "Liberal/Progressive" Side
 - Something in the middle, where people that have deep roots in the Christian circle are having those roots tangled in with the progressive side. This isn't a matter of choice for them, as one particular character study shows. It causes incredible pain and confusion. Interestingly, the two widely-suspected gay *and* Christian characters are the ones that get physically hurt–Logan hits his head and the former pastor's kid cuts.
 
-![](/uploads/chicken.jpg)
-
-[*Image: Henry and Logan play in the pool while Henry's father looks on from the grill*]
+![](uploads/chicken.jpg)
+*Image: Henry and Logan play in the pool while Henry's father looks on from the grill*
 
 The great thing about HGBP is that I think it gives an *accurate* representation of what I, personally, can attest to hearing and (forgive me) even believing about LGBT people when I was a Christian. I could easily have been at this birthday party. If you decide to watch it, there are honestly like eight characters that could have been me then. *shudders*. Even so, this accurate representation doesn't fall into a trap of making the issue of bigotry into a charity case for the bigots themselves. The relatively complexity of what they're all going through does allow for one to see that they're human, but no excuses are made for their homophobia and other harmful, problematic views. If anything, HGBP handily shoves a damn good example of the damage those attitudes, words, and deeds do right into the faces of the Christian camp (hint: has to do with those content warnings and the former pastor's kid).
 
