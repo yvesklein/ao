@@ -10,7 +10,7 @@ published: true
 
 ---
 
-Bold means there's a linked review, and an asterisk means there's a review in progress.
+Bold means there's a linked review, and an asterisk means there's a review in progress. Strikethrough means I sold it before I could/would review it.
 
 ### Dildos
 
@@ -20,7 +20,8 @@ Bold means there's a linked review, and an asterisk means there's a review in pr
 - [Tantus Echo](https://www.solochro.me/posts/tantus-echo)
 - [Tantus Echo Super Soft](https://www.solochro.me/posts/tantus-echo)
 - [Tantus Tsunami](https://www.solochro.me/posts/tantus-tsunami)
-- Tantus Slow Drive*
+- Tantus Slow Drive
+- Tantus Flurry O2
 
 ### External Vibrators
 - [We-Vibe Touch](https://www.solochro.me/posts/we-vibe-touch)
@@ -28,12 +29,14 @@ Bold means there's a linked review, and an asterisk means there's a review in pr
 - [Screaming O! Tri-It](http://www.solochro.me/posts/tri-it)
 - The Eroscillator*
 - BMS PalmPower*
+- Je Joue MiMi Soft
 
 ### Internal Vibrators
 
 - BMS Swan Wand*
 - We-Vibe Nova*
 - Blush Noje Slim*
+- Je Joue G-Kii
 
 ### Suction Toys
 - Womanizer Starlet*
@@ -42,5 +45,8 @@ Bold means there's a linked review, and an asterisk means there's a review in pr
 ### Butt Toys
 - [Tantus Ripple](http://www.solochro.me/posts/tantus-ripple)
 - [Tantus Touchdown](http://www.solochro.me/posts/tantus-touchdown)
-- Tantus Severin Super Soft, Small
+- ~~Tantus Severin Super Soft, Small~~
 - SquarePeg Egg Plug in SuperSoft Graphite, XS
+- Fun Factory B-Balls Duo
+- Je Joue Nuo
+- Tantus Ryder mk. II (the version before the current one)

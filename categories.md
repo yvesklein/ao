@@ -30,3 +30,7 @@ Posts where I deconstruct/criticize a particular idea or action that I think rea
 ## Film Reviews
 
 Where I review, critique, and/or pick apart a film or video that involves sex somehow.
+
+### Obscure Gay Film
+
+- [Henry Gamble's Birthday Review](https://www.solochro.me/posts/henry-gamble)
