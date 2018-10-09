@@ -4,7 +4,7 @@ layout: post
 tags:
   - media
   - article
-hero: /uploads/hgbp.jpg
+hero: /uploads/hgbp.png
 overlay: blue
 title: Obscure Gay Film | Henry Gamble's Birthday Party Review
 ---
@@ -51,7 +51,7 @@ The movie revolves around the pool and the viewpoints expressed in and near it. 
 - The "Liberal/Progressive" Side
 - Something in the middle, where people that have deep roots in the Christian circle are having those roots tangled in with the progressive side. This isn't a matter of choice for them, as one particular character study shows. It causes incredible pain and confusion. Interestingly, the two widely-suspected gay *and* Christian characters are the ones that get physically hurt–Logan hits his head and the former pastor's kid cuts.
 
-![](uploads/chicken.jpg)
+![]({{site.baseurl}}uploads/chicken.png)
 *Image: Henry and Logan play in the pool while Henry's father looks on from the grill*
 
 The great thing about HGBP is that I think it gives an *accurate* representation of what I, personally, can attest to hearing and (forgive me) even believing about LGBT people when I was a Christian. I could easily have been at this birthday party. If you decide to watch it, there are honestly like eight characters that could have been me then. *shudders*. Even so, this accurate representation doesn't fall into a trap of making the issue of bigotry into a charity case for the bigots themselves. The relatively complexity of what they're all going through does allow for one to see that they're human, but no excuses are made for their homophobia and other harmful, problematic views. If anything, HGBP handily shoves a damn good example of the damage those attitudes, words, and deeds do right into the faces of the Christian camp (hint: has to do with those content warnings and the former pastor's kid).
@@ -77,11 +77,11 @@ What we get in the lines and ideas themselves though, is a spectrum of Christian
 
 What is Henry, the pastor's kid, like? The direction of film doesn't really leave too much question on where Henry's sexuality lies. He's by far the least visibly harmed by the homophobia in his surroundings (he has internalized a great deal of it, however). Still, the opening and closing scenes find Henry in his bed, shirtless, with another teen boy. The first time it's his best friend and they masturbate together; at the end it's with Logan. First he apologizes for his behavior during the party. Then he asks if they can kiss.
 
-![]({{site.baseurl}}/uploads/bikini.jpg)
+![]({{site.baseurl}}/uploads/bikini.png)
 
 [*Images: (Above) a teenage girl attending the party undresses and reveals her bikini. The shot is a close up on the cross emblem visible on the bikini bottom itself. (Below) Henry and his best friend look on from within the pool.*]
 
-![]({{site.baseurl}}/uploads/gaze.jpg)
+![]({{site.baseurl}}/uploads/gaze.png)
 
 I think Henry's situation is where a ton of teens and young adults raised Christian that find themselves with an "errant" sexuality or gender identity are at some point. He's still relatively devout, but he's regularly exposed to influences that pull him out of the trenches of the exclusionary dogma of the Church. Henry's main hobby is listening to music and creating a podcast to share music; it's obvious that this is what has afforded him the most mental liberty in his life. It's not an accident that his mother, who apologizes to her daughter on-screen for having shamed her sexuality in the past, shares a special playlist with him. By contrast, the only music that the devout Christians introduce is a forced worship song and sermon. It gets interrupted by a side character that's been cutting his face in the bathroom with razor blades, because his mental health is in tatters. This is due in large part to the way that the community has treated him after several incidents: 1) a vague, supposedly gay "shower incident" on a youth group trip, 2) his suicide attempt, and 3) the death of his father.
 
