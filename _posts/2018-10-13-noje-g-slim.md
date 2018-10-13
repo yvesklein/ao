@@ -25,7 +25,7 @@ If I had to pick a word for the Noje's vibrations, and even for the toy overall,
 
 #### The Controls
 ![](/uploads/noje_c.jpg)
-*Image of the Noje G Slim's controls: a plus button, a minus button on opposite sides of the bottom of the handle, with the Blush logo inbetween.*
+*Image of the Noje G Slim's controls: a plus button, a minus button on opposite sides of the bottom of the handle, with the Blush logo in-between.*
 
 There are 10 vibration "functions," and thankfully the control scheme isn't a singular button: you get two. One thing that's a little weird about how the controls work to me is how long you have to hold down either the + or - button in order to turn it on or off. But that's not necessarily a big deal[^1].
 
@@ -35,13 +35,13 @@ There are 10 vibration "functions," and thankfully the control scheme isn't a si
 
 #### Internal use
 
-As a G-spot vibrator, the Noje can be used externally and internally both on and off. If you've read some of my other vibrator reviews...you won't be surprised when I say that I think I enjoyed the Noje the most when I used it wihtout vibrations. I just fucking love the shape that much, and the intense vibrations were often just too much for me, despite being pleasurable when I could handle them.
+As a G-spot vibrator, the Noje can be used externally and internally both on and off. If you've read some of my other vibrator reviews...you won't be surprised when I say that I think I enjoyed the Noje the most when I used it without vibrations. I just fucking love the shape that much, and the intense vibrations were often just too much for me, despite being pleasurable when I could handle them.
 
 It's actually kind of funny how much the Noje's intensity made me scream on multiple occasions.
 
 The first time I gave it a fair try, I wasn't super-aroused and I used it without doing much else beforehand. Fast-forward like five minutes and I'm thrusting it in a frenzy and shouting all manner of profanity from how good the vibrations + the shape feel.
 
-The second time I end up only *trying* to use it and still end up close to the same state. See, this is how intense the toy is: I had been masturbating for a while and thought it would be good to try the toy when already quite aroused after having had some clitoral peaks/orgasms. My level of arousal can deifnitely utterly transform my experience with a toy...but this is where I learned that maybe one can be *too* aroused for certain toys/intensities. I wouldn't have used the Pure Wand in the state I was in, and it turns out the Noje was a no-go too. 
+The second time I end up only *trying* to use it and still end up close to the same state. See, this is how intense the toy is: I had been masturbating for a while and thought it would be good to try the toy when already quite aroused after having had some clitoral [peaks/orgasms](http://www.solochro.me/posts/an-orgasm-by-any-other-name). My level of arousal can definitely utterly transform my experience with a toy...but this is where I learned that maybe one can be *too* aroused for certain toys/intensities. I wouldn't have used the Pure Wand in the state I was in (too firm/intense), and it turns out the Noje was a no-go too. 
 
 So, wow. The shape is really effective, almost *too* effective at certain times.
 
@@ -54,7 +54,7 @@ I love the shape because of the bulging head but also because it slims down, whi
 
 #### As a clit toy
 
-Tons of G-spot vibrators end up getting reocmmended for their efficacy as clitoral vibrators *over* their 'intended' function. I think the shape of the Noje is really handy for clitoral stimulation with that long handle...but my clit isn't really a fan of the sort of vibrations it gives. While I wouldn't say I *need* pinpoint vibration, I'm becoming more and more certain that I need a focused vibration, like the kind I get from a small clit vibe instead of from a wand of any kind. So it's not for my particular (wimpy) clit, but you can definitely use it this way.
+Tons of G-spot vibrators end up getting recommended for their efficacy as clitoral vibrators *over* their 'intended' function. I think the shape of the Noje is really handy for clitoral stimulation with that long handle...but my clit isn't really a fan of the sort of vibrations it gives. While I wouldn't say I *need* pinpoint vibration, I'm becoming more and more certain that I need a focused vibration, like the kind I get from a small clit vibe instead of from a wand of any kind. So it's not for my particular (wimpy) clit, but you can definitely use it this way.
 
 ### Verdict
 
