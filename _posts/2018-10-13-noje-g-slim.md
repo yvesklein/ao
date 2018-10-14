@@ -68,4 +68,4 @@ Thanks to Peepshow Toys for sending me the Noje G Slim for an honest review!
 
 [^1]: if you need to be able to turn off your toy nearly instantly because of a lack of total privacy or whatever else, this matters. Otherwise it's a bit of a nit-pick from me.
 [^2]: If you consider the G-Spot Lollipop as the extreme of this sort of toy, it's easy to see how a bulb + slim shaft = super intense stimulation.
-[^ 3]: I don't really like feeling stretched at my vaginal entrance, and tend to stick to slimmer toys. 
+[^3]: I don't really like feeling stretched at my vaginal entrance, and tend to stick to slimmer toys. 
