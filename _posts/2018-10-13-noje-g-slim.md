@@ -61,7 +61,7 @@ Tons of G-spot vibrators end up getting recommended for their efficacy as clitor
 The Blush Noje G Slim is an enormous value, and definitely deserves a chance if you're looking for a strong vibrator, period. It's a little shocking to me that it's only $35, to be honest.
 
 {: .notice-success}
-Buy Blush's Noje G Slim vibrator at Peepshow Toys, and get $3.50 off with my code SOLO!
+Buy [Blush's Noje G Slim vibrator](https://www.peepshowtoys.com/collections/g-spot-vibrators/products/blush-novelties-noje-g-slim-vibrator#oid=91554_4244) at Peepshow Toys, and get $3.50 off with my code **SOLO**!
 
 {: .notice}
 Thanks to Peepshow Toys for sending me the Noje G Slim for an honest review! 

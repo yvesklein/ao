@@ -35,7 +35,7 @@ Bold means there's a linked review, and an asterisk means there's a review in pr
 
 - BMS Swan Wand*
 - We-Vibe Nova*
-- Blush Noje Slim*
+- [Blush Noje G Slim](https://www.solochro.me/posts/noje-g-slim)
 - Je Joue G-Kii
 
 ### Suction Toys
