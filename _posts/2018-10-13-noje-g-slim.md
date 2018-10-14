@@ -19,8 +19,6 @@ The Noje G Slim takes the form of an "egg-on-a-stick" vibrator, a classic g-spot
 
 The vibrations of the Noje are *really* strong, even from the first level. They're fast vibrations from the get-go, so while this isn't really a buzzy toy, it doesn't have anything like a slow purr-like start. Lots of other toys I have vibrate this way; they go from a purr to a rapid powerful vibration that is still rumbly, but loses some of that rumble to speed. Many bloggers' reviews I've read corroborate this idea: often, a vibrator's highest levels become slightly buzzy.
 
-[video of vibrations]
-
 If I had to pick a word for the Noje's vibrations, and even for the toy overall, it'd be *intense*. The powerful vibrations, the G-spot stroking shape (and the slim shaft after the bulging head), and the firmness of the plastic are a hell of a combination.
 
 #### The Controls
@@ -50,7 +48,9 @@ The third time I tweeted about it:
 <blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Holy fucking shit lmao (literally couldn&#39;t stop laughing. Euphoriagasm?). I was just using the <a href="https://twitter.com/JeJoue?ref_src=twsrc%5Etfw">@JeJoue</a> Nuo + the <a href="https://twitter.com/BlushNovelties?ref_src=twsrc%5Etfw">@BlushNovelties</a> Noje G Slim and was louder than I think I&#39;ve ever been. The Noje wasn&#39;t even on.<br><br>I was worried my family would hear even though they&#39;re out of state</p>&mdash; spookychrome 🎃 (@solochro_me) <a href="https://twitter.com/solochro_me/status/1048729905503096832?ref_src=twsrc%5Etfw">October 7, 2018</a></blockquote>
 <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
-I love the shape because of the bulging head but also because it slims down, which makes the toy so much more effective to me. "Front-loaded" toys are the bomb for internal stimulation[^2]; they add a lot to the thrusting experience on top of making it easier to handle taking the toy[^3].
+I love the shape because of the bulging head but also because it slims down, which makes the toy so much more effective to me. "Front-loaded" toys are the bomb for internal stimulation[^2]; they add a lot to the thrusting experience on top of making it easier to handle taking the toy[^3]. View its glory below:
+
+![](/uploads/noje.jpg)
 
 #### As a clit toy
 
