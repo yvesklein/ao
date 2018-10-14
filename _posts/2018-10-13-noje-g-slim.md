@@ -4,7 +4,7 @@ layout: post
 tags:
   - review
 hero: /uploads/noje.jpg
-overlay: green
+overlay: purple
 title: Blush Noje G Slim Vibrator Review
 ---
 I'll get right to the point: this is a great vibrator, especially for $35. Just to be clear, it's not a great vibrator for the price, it's just that the price sweetens the deal and what you can get out of it.
