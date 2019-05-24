@@ -27,6 +27,8 @@ If something has no emoji, that means I don't have a particular strong opinion a
 ### Dildos
 
 - BS Atelier G-Spot dildo, M 👍
+- Doc Johnson The Slim
+- Fun Factory ShareVibe
 - [Fun Factory Tiger](https://www.solochro.me/posts/fun-factory-tiger)
 - Gläs Double-Headed Dildo
 - [njoy Pure Wand](https://www.solochro.me/posts/njoy-pure-wand) 👍
@@ -40,19 +42,31 @@ If something has no emoji, that means I don't have a particular strong opinion a
 - [We-Vibe Touch](https://www.solochro.me/posts/we-vibe-touch) 🚧
 - [Iroha Zen](https://www.solochro.me/posts/iroha-zen) 👍
 - [Screaming O! Tri-It](http://www.solochro.me/posts/tri-it) 🚮
-- The Eroscillator*
+- The Eroscillator
 - BMS PalmPower*
+- Maia Jessi
+- Fun Factory Massage Bullet
 - Je Joue MiMi Soft* ⭐️
 
 ### Internal Vibrators
 
 - BMS Swan Wand* 🚧
-- We-Vibe Nova*
+- We-Vibe Nova
 - [Blush Noje G Slim](https://www.solochro.me/posts/noje-g-slim) 👍
 - Je Joue G-Kii 👍
+- Je Joue Uma
+
+### Pulsators/Thrusting Toys
+
+- Fun Factory Stronic G
+
+### Sleeves
+
+- Blue Valentine Sexy Pill
 
 ### Suction Toys
-- Womanizer Starlet*
+
+- Womanizer Starlet
 - Womanizer Premium*
 
 ### Butt Toys
