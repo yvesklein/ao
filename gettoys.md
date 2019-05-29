@@ -8,19 +8,6 @@ published: true
 
 ## Where to buy: the best online shops (NA)
 
-## [Vibrant](http://www.bevibrant.com?rfsn=1509055.df2dc&utm_source=refersion&utm_medium=affiliate&utm_campaign=1509055.df2dc)
-
-[Vibrant](http://www.bevibrant.com?rfsn=1509055.df2dc&utm_source=refersion&utm_medium=affiliate&utm_campaign=1509055.df2dc) is an excellent shop that works with the Planned Parenthood of the Rocky Mountains. While at any point in time it'd be a great idea to support PP, thanks to the changes in the Supreme Court (fuck you Kennedy), we're moving even further into a potential political danger zone for Roe v. Wade and reproductive rights/health.
-
-Their mission:
-
-> **Vibrant is dedicated to providing a space without stigma for all people to take control of their sex life with fun body-safe and quality products.** 
-
-Pretty rad.
-
-{: .notice-success}
-Use the code SOLO for 10% off your order at Vibrant.
-
 ## [Peepshow Toys](https://www.peepshowtoys.com#oid=91554_4244)
 
 Like Vibrant, [Peepshow Toys](http://www.peepshowtoys.com#oid=91554_4244) exclusively stocks non-porous, body-safe toys. They support the sex blogging community beautifully and have a great curated selection of toys, lube, and other accesories.
