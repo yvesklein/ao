@@ -10,23 +10,21 @@ published: true
 
 ---
 
-Bold means there's a linked review, and an asterisk means there's a review in progress. Strikethrough means I sold it before I could/would review it.
+I wanted to reserve emoji for strong feelings on toys, so I've only got favorites/warnings on here. My thoughts on everything in between are too varied for a simple emoji!
 
 ##### Emoji key: 
 
-⭐️ = i love this motherfucker/personal favorite
-
-👍 = a good toy that i really enjoy 
+⭐️ = personal favorite
 
 🚧 = the toy is at least decent(may even be pretty damn good), BUT there are things to be wary of/weigh if you're looking to buy it)
 
-🚮 = irritating/not worth buying, ever/why did they make this?
+🚮 = irritating/not worth buying. 
 
-If something has no emoji, that means I don't have a particular strong opinion about it; I may like it or just be neutral.
+
 
 ### Dildos
 
-- BS Atelier G-Spot dildo, M 👍
+- BS Atelier G-Spot, M
 - BS Atelier Max Poly
 - Doc Johnson The Slim
 - Désirables Dalia
@@ -34,30 +32,31 @@ If something has no emoji, that means I don't have a particular strong opinion a
 - [Fun Factory Tiger](https://www.solochro.me/posts/fun-factory-tiger)
 - Gläs Double-Headed Dildo
 - Laid D.2 in Granite
-- [njoy Pure Wand](https://www.solochro.me/posts/njoy-pure-wand) 👍
+- [njoy Pure Wand](https://www.solochro.me/posts/njoy-pure-wand)
 - [Tantus Echo](https://www.solochro.me/posts/tantus-echo)
 - [Tantus Echo Super Soft](https://www.solochro.me/posts/tantus-echo)
 - [Tantus Tsunami](https://www.solochro.me/posts/tantus-tsunami)
+- Tantus Silk, S
 - Tantus Slow Drive
 - Tantus Flurry O2
 
 ### External Vibrators
 - [We-Vibe Touch](https://www.solochro.me/posts/we-vibe-touch) 🚧
-- [Iroha Zen](https://www.solochro.me/posts/iroha-zen) 👍
+- [Iroha Zen](https://www.solochro.me/posts/iroha-zen)
 - [Screaming O! Tri-It](http://www.solochro.me/posts/tri-it) 🚮
 - The Eroscillator
-- BMS PalmPower*
+- BMS PalmPower
 - Maia Jessi
 - Fun Factory Massage Bullet
-- Je Joue MiMi Soft* ⭐️
+- Je Joue MiMi Soft ⭐️
 - Iroha Kushi
 
 ### Internal Vibrators
 
 - BMS Swan Wand* 🚧
 - We-Vibe Nova
-- [Blush Noje G Slim](https://www.solochro.me/posts/noje-g-slim) 👍
-- Je Joue G-Kii 👍
+- [Blush Noje G Slim](https://www.solochro.me/posts/noje-g-slim) 
+- Je Joue G-Kii 
 - Je Joue Uma
 
 ### Pulsators/Thrusting Toys
@@ -71,14 +70,14 @@ If something has no emoji, that means I don't have a particular strong opinion a
 ### Suction Toys
 
 - Womanizer Starlet
-- Womanizer Premium*
+- Womanizer Premium
 
 ### Butt Toys
 - [Tantus Ripple](http://www.solochro.me/posts/tantus-ripple) ⭐️
 - [Tantus Touchdown](http://www.solochro.me/posts/tantus-touchdown) 
 - ~~Tantus Severin Super Soft, Small~~
-- SquarePeg Egg Plug in SuperSoft Graphite, XS 👍
+- SquarePeg Egg Plug in SuperSoft Graphite, XS 
 - Fun Factory B-Balls Duo 🚧
-- B-Vibe Snug Plug 2 👍
+- B-Vibe Snug Plug 2 
 - Je Joue Nuo ⭐️
 - Tantus Ryder mk. II (the version before the current one)
