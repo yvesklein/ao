@@ -16,7 +16,7 @@ Bold means there's a linked review, and an asterisk means there's a review in pr
 
 ⭐️ = i love this motherfucker/personal favorite
 
-👍 = a good toy that i enjoy personally
+👍 = a good toy that i really enjoy 
 
 🚧 = the toy is at least decent(may even be pretty damn good), BUT there are things to be wary of/weigh if you're looking to buy it)
 
@@ -27,10 +27,13 @@ If something has no emoji, that means I don't have a particular strong opinion a
 ### Dildos
 
 - BS Atelier G-Spot dildo, M 👍
+- BS Atelier Max Poly
 - Doc Johnson The Slim
+- Désirables Dalia
 - Fun Factory ShareVibe
 - [Fun Factory Tiger](https://www.solochro.me/posts/fun-factory-tiger)
 - Gläs Double-Headed Dildo
+- Laid D.2 in Granite
 - [njoy Pure Wand](https://www.solochro.me/posts/njoy-pure-wand) 👍
 - [Tantus Echo](https://www.solochro.me/posts/tantus-echo)
 - [Tantus Echo Super Soft](https://www.solochro.me/posts/tantus-echo)
@@ -47,6 +50,7 @@ If something has no emoji, that means I don't have a particular strong opinion a
 - Maia Jessi
 - Fun Factory Massage Bullet
 - Je Joue MiMi Soft* ⭐️
+- Iroha Kushi
 
 ### Internal Vibrators
 
