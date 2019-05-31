@@ -1,7 +1,10 @@
 # solochro.me todo
 
 - [ ] make links on header rainbow
+- [ ] make a footer
+- [ ] make twitter/email more prominent (color?)
 
+- [ ] redo photos/improve photography
 - [ ] twitter improvement
   - [ ] colorful header, avatar update
 - [ ] reddit deals thread auto/default post
