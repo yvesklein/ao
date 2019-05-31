@@ -10,7 +10,9 @@ title: BMS PalmPower Review
 
 ---
 
-The [PalmPower](https://www.peepshowtoys.com/products/bms-palmpower-rechargeable-wand-massager) might be the wand that has everything. {: .lead}
+The [PalmPower](https://www.peepshowtoys.com/products/bms-palmpower-rechargeable-wand-massager) might be the wand that has everything.
+
+{: .lead}
 
 <!--break-->
 
