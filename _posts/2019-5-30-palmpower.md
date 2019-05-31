@@ -46,5 +46,7 @@ The PalmPower is a powerful, compact, affordable, safe wand. I honestly think it
 
 I was supposed to say: "pick up the PalmPower Recharge at Vibrant (and use code SOLO for 10% off anytime)" … But Vibrant is no longer with us (R.I.P.), so...
 
-{: .notice-success} You can buy the [PalmPower Recharge](https://www.peepshowtoys.com/products/bms-palmpower-rechargeable-wand-massager) at Peepshow Toys! Use the coupon code SOLO for 10% off your order.
+{: .notice-success}
+
+You can buy the [PalmPower Recharge](https://www.peepshowtoys.com/products/bms-palmpower-rechargeable-wand-massager) at Peepshow Toys! Use the coupon code SOLO for 10% off your order.
 
