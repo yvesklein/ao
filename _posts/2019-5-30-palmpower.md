@@ -14,9 +14,11 @@ The [PalmPower](https://www.peepshowtoys.com/products/bms-palmpower-rechargeable
 
 {: .lead}
 
+When I think about all it offers for its price ($69, nice), it's extremely impressive, especially when put up against the competition.
+
 <!--break-->
 
-When I think about all it offers for its price ($69, nice), it's extremely impressive, especially when put up against the competition. It's body-safe, it's powerful, *waterproof*, there are [attachments](https://www.peepshowtoys.com/search?q=palmpower) available, it's cordless, and it's slim–not cumbersome or heavy (it's pictured with that legendary microphone above because it struck me that they're pretty close in size). You get the benefits of both worlds of external/"clitoral" vibes: small toys that can fit in your hand, and full-size wands that you plug into a wall and cause earthquakes. There's obviously going to be more headroom for power in a large mains-powered wand like a [Doxy](https://www.peepshowtoys.com/search?q=doxy), but the PalmPower still has plenty of rumble and power to go 'round.
+It's body-safe, it's powerful, *waterproof*, there are [attachments](https://www.peepshowtoys.com/search?q=palmpower) available, it's cordless, and it's slim–not cumbersome or heavy (it's pictured with that legendary microphone above because it struck me that they're pretty close in size). You get the benefits of both worlds of external/"clitoral" vibes: small toys that can fit in your hand, and full-size wands that you plug into a wall and cause earthquakes. There's obviously going to be more headroom for power in a large mains-powered wand like a [Doxy](https://www.peepshowtoys.com/search?q=doxy), but the PalmPower still has plenty of rumble and power to go 'round.
 
 ### Versus...
 
