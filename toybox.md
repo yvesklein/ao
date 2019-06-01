@@ -8,8 +8,6 @@ published: true
 
 # Toybox
 
----
-
 I wanted to reserve emoji for strong feelings on toys, so I've only got favorites/warnings on here. My thoughts on everything in between are too varied for a simple emoji!
 
 ##### Emoji key: 
