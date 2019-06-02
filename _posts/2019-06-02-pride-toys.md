@@ -5,7 +5,7 @@ layout: post
 tags:
   - list
 hero: /uploads/alex-rainbow.jpg
-overlay: blue
+overlay: green
 title: Toys for Pride
 
 ---
