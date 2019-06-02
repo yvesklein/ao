@@ -55,9 +55,11 @@ rainbow | lesbian | bisexual | transgender | custom
 
 ### Fantasy Toy Makers with Pride Options:
 
+- [Driving Desires](https://www.etsy.com/shop/DrivingDesiresToys?ref=simple-shop-header-name&listing_id=661992278&search_query=rainbow)
+
 - [Kudu Voodoo](http://kuduvoodoo.net ) 
 
-- [Driving Desires](https://www.etsy.com/shop/DrivingDesiresToys?ref=simple-shop-header-name&listing_id=661992278&search_query=rainbow)
+- [Strange Bedfellas](https://www.etsy.com/shop/StrangeBedfellas)
 
   Many fantasy dildo makers also do customs, so check out [this list](https://squirrelmunk.com/2017/10/09/list-of-fantasy-toy-makers/) if you'd like to see more options.
 
