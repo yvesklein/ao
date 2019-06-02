@@ -4,8 +4,8 @@ date: '2019-06-02 00:00:00 +0000'
 layout: post
 tags:
   - list
-hero: /uploads/rainbow.jpg
-overlay: 
+hero: /uploads/alex-rainbow.jpg
+overlay: orange
 title: Toys for Pride
 
 ---
@@ -20,7 +20,7 @@ View SheVibe's whole Pride collection(with a [rainbow vibrator](https://shevibe.
 
 I've listed the companies and put the flag designs they have available underneath/alongside for ease (I hope!). Most of the designs are linked in one place but some odd links are in the flag-tags themselves.
 
-## Dildos & Plugs
+# Dildos & Plugs
 
 ### [Blush Novelties](https://shevibe.com/search.php?search_query.x=0&search_query.y=0&search_query=avant+pride#oid=1432_1)
 
@@ -28,19 +28,17 @@ rainbow | lesbian | bisexual | transgender | genderqueer | genderfluid | asexual
 
 ### [BS Atelier](https://www.bsatelier.com/en/40-dildos-pride)
 
-rainbow | [les](https://spectrumboutique.com/product/bs-atelier-max-lesbian-pride-silicone-dildo/)b[ian](https://www.bsatelier.com/en/max/540-max-les.html) | bisexual | transgender | polyamorous | genderqueer | leather | [custom](https://www.bsatelier.com/es/38-piezas-custom)
+rainbow | [les](https://spectrumboutique.com/product/bs-atelier-max-lesbian-pride-silicone-dildo/)b[ian](https://www.bsatelier.com/en/max/540-max-les.html) | bisexual | transgender | polyamorous | genderqueer | leather | [custom](https://www.bsatelier.com/en/38-piezas-custom)
 
 ### [Colours](https://shevibe.com/search.php?search_query=colours+pride&page=1&limit=56&sort=relevance&brand=97&category=66#oid=1432_1): [rainbow](https://shevibe.com/search.php?search_query=colours+pride&page=1&limit=56&sort=relevance&brand=97&category=66#oid=1432_1) 
 
-### [Funkit Toys](https://www.funkittoys.com/shop)
-
-[rainbow](https://shevibe.com/funkit-toys-crista-swell-silicone-dildo-rainbow.aspx#oid=1432_1) | [custom](https://www.funkittoys.com/customs)
+### [Funkit Toys](https://www.funkittoys.com/shop): [rainbow](https://shevibe.com/funkit-toys-crista-swell-silicone-dildo-rainbow.aspx#oid=1432_1) | [custom](https://www.funkittoys.com/customs)
 
 ### [Godemiche](https://g-silicone.com/shop/proud-to-support-pride-collection/)
 
 rainbow | bisexual | transgender | genderqueer | polysexual | pansexual
 
-There's also Godemiche's "[confused rainbow](https://www.etsy.com/listing/269705922/the-confused-rainbow-silicone-6-inch?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=rainbow+dildo&ref=sr_gallery-1-3&organic_search_click=1&frs=1)" colorway, similar to Vixen's Tie Bright.
+There's also Godemiche's "[confused rainbow](https://www.etsy.com/listing/269705922/the-confused-rainbow-silicone-6-inch?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=rainbow+dildo&ref=sr_gallery-1-3&organic_search_click=1&frs=1)" colorway.
 
 ### [Geeky Sex Toys](https://geekysextoys.com/interests/pride/)
 
@@ -60,4 +58,10 @@ rainbow | lesbian | bisexual | transgender | custom
 
 - [Driving Desires](https://www.etsy.com/shop/DrivingDesiresToys?ref=simple-shop-header-name&listing_id=661992278&search_query=rainbow)
 
-  Many fantasy dildo makers also do customs, so check out [this list](https://squirrelmunk.com/2017/10/09/list-of-fantasy-toy-makers/) if you'd like to see more options. 
+  Many fantasy dildo makers also do customs, so check out [this list](https://squirrelmunk.com/2017/10/09/list-of-fantasy-toy-makers/) if you'd like to see more options.
+
+---
+
+{: .notice}
+The cover photo is from BS Atelier's product page for the Alex Rainbow.
+
