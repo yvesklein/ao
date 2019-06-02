@@ -1,6 +1,6 @@
 ---
 published: true
-date: '2019-5-30 04:00:00 +0000'
+date: '2019-06-02 00:00:00 +0000'
 layout: post
 tags:
   - list
@@ -10,7 +10,11 @@ title: Toys for Pride
 
 ---
 
-Here's a big list of safe sex toys to show your pride. (If you're looking for kink, my knowledge there w/r/t pride is non-existent. Apologies)
+Here's a big list of safe sex toys to show your pride.
+
+{. lead}
+
+<!--break-->
 
 View Shevibe's whole Pride collection(with a [rainbow vibrator](https://shevibe.com/ro-80mm-7-function-bullet-vibrator-by-rocks-off-rainbow.aspx#oid=1432_1) and [cock ring]( https://shevibe.com/rascal-brawn-pride-3x-stretch-silicone-cock-ring/#oid=1432_1)) here; they're donating profits from their pride section to [The Trevor Project](https://www.thetrevorproject.org/about/).
 
