@@ -20,6 +20,9 @@ View SheVibe's whole Pride collection(with a [rainbow vibrator](https://shevibe.
 
 I've listed the companies and put the flag designs they have available underneath/alongside for ease (I hope!). Most of the designs are linked in one place but some odd links are in the flag-tags themselves.
 
+{: .notice-warning}
+If there's anything missing you think I should add, hit me [@solochrome](https://twitter.com/solochro_me) or [/u/solochro-me](/u/solochro-me)!
+
 # Dildos & Plugs
 
 ### [Blush Novelties](https://shevibe.com/search.php?search_query.x=0&search_query.y=0&search_query=avant+pride#oid=1432_1)
@@ -30,9 +33,9 @@ rainbow | lesbian | bisexual | transgender | genderqueer | genderfluid | asexual
 
 rainbow | [les](https://spectrumboutique.com/product/bs-atelier-max-lesbian-pride-silicone-dildo/)b[ian](https://www.bsatelier.com/en/max/540-max-les.html) | bisexual | transgender | polyamorous | genderqueer | leather | [custom](https://www.bsatelier.com/en/38-piezas-custom)
 
-### [Colours](https://shevibe.com/search.php?search_query=colours+pride&page=1&limit=56&sort=relevance&brand=97&category=66#oid=1432_1): [rainbow](https://shevibe.com/search.php?search_query=colours+pride&page=1&limit=56&sort=relevance&brand=97&category=66#oid=1432_1) 
+### [Colours: rainbow](https://shevibe.com/search.php?search_query=colours+pride&page=1&limit=56&sort=relevance&brand=97&category=66#oid=1432_1)
 
-### [Funkit Toys](https://www.funkittoys.com/shop): [rainbow](https://shevibe.com/funkit-toys-crista-swell-silicone-dildo-rainbow.aspx#oid=1432_1) | [custom](https://www.funkittoys.com/customs)
+### [Funkit Toys](https://www.funkittoys.com/shop): [rainbow](https://shevibe.com/funkit-toys-crista-swell-silicone-dildo-rainbow.aspx#oid=1432_1), [custom](https://www.funkittoys.com/customs)
 
 ### [Godemiche](https://g-silicone.com/shop/proud-to-support-pride-collection/)
 
