@@ -36,23 +36,21 @@ rainbow | [les](https://spectrumboutique.com/product/bs-atelier-max-lesbian-prid
 
 ### [Godemiche](https://g-silicone.com/shop/proud-to-support-pride-collection/)
 
-rainbow | bisexual | transgender | genderqueer | polysexual | pansexual
-
-There's also Godemiche's "[confused rainbow](https://www.etsy.com/listing/269705922/the-confused-rainbow-silicone-6-inch?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=rainbow+dildo&ref=sr_gallery-1-3&organic_search_click=1&frs=1)" colorway.
+rainbow[^1] | bisexual | transgender | genderqueer | polysexual | pansexual
 
 ### [Geeky Sex Toys](https://geekysextoys.com/interests/pride/)
 
 rainbow | lesbian | bisexual | transgender | custom
 
-### Split Peaches: [rainbow](https://shevibe.com/search.php?search_query.x=0&search_query.y=0&search_query=unicorn+rainbow#oid=1432_1)(unicorn horn)
+### [Split Peaches: rainbow](https://shevibe.com/search.php?search_query.x=0&search_query.y=0&search_query=unicorn+rainbow#oid=1432_1)(unicorn horn)
 
-### Ttamage (glass artisan): [rainbow](https://www.etsy.com/shop/Ttamage?search_query=rainbow)
+### [Ttamage (glass artisan): rainbow](https://www.etsy.com/shop/Ttamage?search_query=rainbow)
 
-### [Uberrime](https://www.uberrime.com/shop): a couple "accidentally bi" colorways
+### [Uberrime: a couple "accidentally bi" colorways](https://www.uberrime.com/shop)
 
-### Vixen: [tie bright](https://shevibe.com/search.php?search_query.x=0&search_query.y=0&search_query=tie+bright#oid=1432_1)
+### [Vixen: tie bright](https://shevibe.com/search.php?search_query.x=0&search_query.y=0&search_query=tie+bright#oid=1432_1)
 
-### Fantasy Toy Makers with Pride Drops:
+### Fantasy Toy Makers with Pride Options:
 
 - [Kudu Voodoo](http://kuduvoodoo.net ) 
 
@@ -65,3 +63,7 @@ rainbow | lesbian | bisexual | transgender | custom
 {: .notice}
 The cover photo is from BS Atelier's product page for the Alex Rainbow.
 
+{: .notice}
+Last updated: June 2, 2019
+
+[^1]: There's also Godemiche's "[confused rainbow](https://www.etsy.com/listing/269705922/the-confused-rainbow-silicone-6-inch?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=rainbow+dildo&ref=sr_gallery-1-3&organic_search_click=1&frs=1)" colorway.
