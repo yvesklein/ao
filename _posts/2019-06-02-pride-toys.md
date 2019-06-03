@@ -49,6 +49,10 @@ rainbow | lesbian | bisexual | transgender | custom
 
 ### [Ttamage (glass artisan): rainbow](https://www.etsy.com/shop/Ttamage?search_query=rainbow)
 
+### [Simply Elegant Glass](https://www.etsy.com/shop/SimplyElegantGlass?ref=simple-shop-header-name&listing_id=703118647)
+
+rainbow | trans | custom
+
 ### [Uberrime: a couple "accidentally bi" colorways](https://www.uberrime.com/shop)
 
 ### [Vixen: tie bright](https://shevibe.com/search.php?search_query.x=0&search_query.y=0&search_query=tie+bright#oid=1432_1)
