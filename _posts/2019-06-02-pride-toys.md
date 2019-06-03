@@ -14,7 +14,7 @@ Here's a big list of safe sex toys(mainly insertables) to show your pride.
 
 {: .lead}
 
-View SheVibe's whole Pride collection(with a [rainbow vibrator](https://shevibe.com/ro-80mm-7-function-bullet-vibrator-by-rocks-off-rainbow.aspx#oid=1432_1) and [cock ring]( https://shevibe.com/rascal-brawn-pride-3x-stretch-silicone-cock-ring/#oid=1432_1)) here; they're donating profits from their pride section to [The Trevor Project](https://www.thetrevorproject.org/about/).
+View SheVibe's [whole Pride collection](https://shevibe.com/pride)(with a [rainbow vibrator](https://shevibe.com/ro-80mm-7-function-bullet-vibrator-by-rocks-off-rainbow.aspx#oid=1432_1) and [cock ring]( https://shevibe.com/rascal-brawn-pride-3x-stretch-silicone-cock-ring/#oid=1432_1)) ttoo; they're donating profits from their pride section to [The Trevor Project](https://www.thetrevorproject.org/about/).
 
 <!--break-->
 
