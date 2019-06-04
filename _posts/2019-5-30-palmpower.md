@@ -40,7 +40,7 @@ The only semi-con I can think of is that you have one button that you press-and-
 
 Oh, and I wish it came in all-black or something without hot pink. But that's about it for the "cons" list.
 
-The reason I'm writing about its qualities so much and not about the orgasms it gave me is because the PalmPower is simply too strong for me. I *tried*, damnit, but I really am whatever the opposite of a power queen is. I use most of my vibrators on their first setting, maybe the second if I'm going ham. 
+The reason I'm writing about its qualities so much and not about the orgasms it gave me is because the PalmPower is simply too strong for me. I *tried*, damnit, but I really am whatever the opposite of a power queen is. I use most of my vibrators on their first setting, maybe the second if I'm going ham. The first level is somewhat useable for me(mainly through clothes, or I'll get that numbing feeling) but it's still not pleasurable.
 
 ### Verdict/TLDR
 

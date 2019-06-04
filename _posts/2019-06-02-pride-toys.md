@@ -59,6 +59,8 @@ rainbow | trans | custom
 
 ### Fantasy Toy Makers with Pride Options:
 
+- [Dread the Empire](https://www.etsy.com/shop/dreadtheempire/)
+
 - [Driving Desires](https://www.etsy.com/shop/DrivingDesiresToys?ref=simple-shop-header-name&listing_id=661992278&search_query=rainbow)
 
 - [Kudu Voodoo](http://kuduvoodoo.net ) 
