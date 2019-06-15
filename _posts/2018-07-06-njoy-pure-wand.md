@@ -4,6 +4,7 @@ title: njoy Pure Wand Review
 date: '2018-07-06 04:00:00 +0000'
 tags:
   - review
+  - dildo
 hero: /uploads/njoy_s.png
 published: true
 overlay: red

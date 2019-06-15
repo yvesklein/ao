@@ -3,6 +3,7 @@ published: true
 layout: post
 tags:
   - review
+  - lube
 hero: /uploads/sheabutters.jpg
 overlay: blue
 title: The Butters Aloe x Shea Lube Review

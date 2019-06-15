@@ -3,6 +3,7 @@ published: true
 layout: post
 tags:
   - review
+  - vibrator
 hero: /uploads/noje.jpg
 overlay: purple
 title: Blush Noje G Slim Vibrator Review

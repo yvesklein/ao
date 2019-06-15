@@ -2,6 +2,7 @@
 layout: post
 tags:
   - review
+  - dildo
 title: Fun Factory Tiger Review
 date: '2018-07-10 00:00:00 +0000'
 hero: /uploads/fun_l.png

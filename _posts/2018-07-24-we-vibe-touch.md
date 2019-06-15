@@ -3,6 +3,7 @@ published: true
 layout: post
 tags:
   - review
+  - vibrator
 hero: /uploads/touch.jpg
 overlay: purple
 title: We-Vibe Touch Review

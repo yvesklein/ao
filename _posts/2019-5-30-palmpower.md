@@ -4,6 +4,7 @@ date: '2019-5-30 04:00:00 +0000'
 layout: post
 tags:
   - review
+  - vibrator
 hero: /uploads/pp_shure.JPG
 overlay: red
 title: BMS PalmPower Review

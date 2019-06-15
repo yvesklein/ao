@@ -1,6 +1,8 @@
 ---
 published: true
 layout: post
+tags:
+  - article
 title: How I got this damn thing(website) working
 hero: uploads/htmlshot.jpg
 overlay: green

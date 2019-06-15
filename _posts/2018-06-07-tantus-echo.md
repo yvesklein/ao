@@ -3,6 +3,7 @@ layout: post
 title: Tantus Echo & Echo Super Soft Reviews
 tags:
   - review
+  - dildo
 published: true
 hero: "/assets/img/generic-hero.jpg"
 overlay: purple

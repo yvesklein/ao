@@ -3,6 +3,7 @@ published: true
 layout: post
 tags:
   - review
+  - plug
 hero: /uploads/touch_h.jpg
 overlay: 
 title: Tantus Touchdown Review

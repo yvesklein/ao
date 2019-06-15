@@ -3,6 +3,8 @@ published: true
 layout: post
 tags:
   - review
+  - plug
+  - dildo
 title: Tantus Ripple Small Review
 hero: /uploads/rip_t.png
 overlay: purple
