@@ -14,7 +14,7 @@ Here's a big list of safe sex toys(mainly insertables) to show your pride.
 
 {: .lead}
 
-View SheVibe's [whole Pride collection](https://shevibe.com/pride)(with a [rainbow vibrator](https://shevibe.com/ro-80mm-7-function-bullet-vibrator-by-rocks-off-rainbow.aspx#oid=1432_1) and [cock ring]( https://shevibe.com/rascal-brawn-pride-3x-stretch-silicone-cock-ring/#oid=1432_1)) ttoo; they're donating profits from their pride section to [The Trevor Project](https://www.thetrevorproject.org/about/).
+View SheVibe's [whole Pride collection](https://shevibe.com/pride)(with a [rainbow vibrator](https://shevibe.com/ro-80mm-7-function-bullet-vibrator-by-rocks-off-rainbow.aspx#oid=1432_1) and [cock ring]( https://shevibe.com/rascal-brawn-pride-3x-stretch-silicone-cock-ring/#oid=1432_1)) too; they're donating profits from their pride section to [The Trevor Project](https://www.thetrevorproject.org/about/).
 
 <!--break-->
 
@@ -63,7 +63,9 @@ rainbow | trans | custom
 
 - [Driving Desires](https://www.etsy.com/shop/DrivingDesiresToys?ref=simple-shop-header-name&listing_id=661992278&search_query=rainbow)
 
-- [Kudu Voodoo](http://kuduvoodoo.net ) 
+- [Kudu Voodoo](http://kuduvoodoo.net )
+
+- [A Krow's Nest](https://www.etsy.com/shop/AKrowsNest/items)
 
 - [Strange Bedfellas](https://www.etsy.com/shop/StrangeBedfellas)
 

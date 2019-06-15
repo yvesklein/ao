@@ -10,7 +10,7 @@ published: true
 
 ## [Peepshow Toys](https://www.peepshowtoys.com#oid=91554_4244)
 
-Like Vibrant, [Peepshow Toys](http://www.peepshowtoys.com#oid=91554_4244) exclusively stocks non-porous, body-safe toys. They support the sex blogging community beautifully and have a great curated selection of toys, lube, and other accesories.
+[Peepshow Toys](http://www.peepshowtoys.com#oid=91554_4244) exclusively stocks non-porous, body-safe toys. They support the sex blogging community beautifully and have a great curated selection of toys, lube, and other accesories.
 
 {: .notice-success}
 Use the code SOLO for 10% off your order at Peepshow Toys.
