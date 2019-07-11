@@ -8,74 +8,104 @@ published: true
 
 # Toybox
 
-I wanted to reserve emoji for strong feelings on toys, so I've only got favorites/warnings on here. My thoughts on everything in between are too varied for a simple emoji!
+I wanted to reserve emoji for strong feelings on toys. My thoughts and feelings on everything emoji-less are too mild or varied for a simple emoji!
 
 ##### Emoji key: 
 
-⭐️ = personal favorite
+🎖 = a favorite ✨
 
-🚧 = the toy is at least decent(may even be pretty damn good), BUT there are things to be wary of/weigh if you're looking to buy it)
+✅ = good/I like it!
 
-🚮 = irritating/not worth buying. 
+😐 = doesn't work for me (mfw i use it).
 
+🚮 = outright dislike.
 
+📢 = important negative thing(s) to know about this toy that might not be obvious.
+
+Toy Count: 55
 
 ### Dildos
 
-- BS Atelier G-Spot, M
-- BS Atelier Max Poly
+- BS Atelier G-Spot, M 🎖
+- BS Atelier Max Poly ✅
 - Doc Johnson The Slim
-- Désirables Dalia
-- Fun Factory ShareVibe
+- Désirables Dalia 🎖
+- Fun Factory ShareVibe 📢
 - [Fun Factory Tiger](https://www.solochro.me/posts/fun-factory-tiger)
-- Gläs Double-Headed Dildo
+- Gläs Double-Headed Dildo 🎖
+- Glass By Woozy Wand
+- Jopen Comet Wand
 - Laid D.2 in Granite
-- [njoy Pure Wand](https://www.solochro.me/posts/njoy-pure-wand)
-- [Tantus Echo](https://www.solochro.me/posts/tantus-echo)
-- [Tantus Echo Super Soft](https://www.solochro.me/posts/tantus-echo)
-- [Tantus Tsunami](https://www.solochro.me/posts/tantus-tsunami)
+- Luscious Playthings Fun Wand-esque glass dildo
+- [njoy Pure Wand](https://www.solochro.me/posts/njoy-pure-wand) 🎖
+- SquarePeg Big Stick in SuperSoft Graphite
+- [Tantus Echo](https://www.solochro.me/posts/tantus-echo) 😐
+- [Tantus Echo Super Soft](https://www.solochro.me/posts/tantus-echo) ✅
+- [Tantus Tsunami](https://www.solochro.me/posts/tantus-tsunami) 🎖
 - Tantus Silk, S
 - Tantus Slow Drive
-- Tantus Flurry O2
+- Tantus Sport
+- Tantus Flurry O2 😐
+- Vixen Mustang in Fluor-a-Green
 
 ### External Vibrators
-- [We-Vibe Touch](https://www.solochro.me/posts/we-vibe-touch) 🚧
-- [Iroha Zen](https://www.solochro.me/posts/iroha-zen)
-- [Screaming O! Tri-It](http://www.solochro.me/posts/tri-it) 🚮
+- BMS PalmPower Recharge
+
 - The Eroscillator
-- BMS PalmPower
-- Maia Jessi
-- Fun Factory Massage Bullet
-- Je Joue MiMi Soft ⭐️
-- Iroha Kushi
+
+- Dame Kip
+
+- Fun Factory Massage Bullet 📢
+
+- [Iroha Zen](https://www.solochro.me/posts/iroha-zen) ✅
+
+- Iroha Kushi 🎖
+
+- Je Joue MiMi Soft 🎖
+
+- Maia Jessi 📢
+
+- [Screaming O! Tri-It](http://www.solochro.me/posts/tri-it) 🚮
+
+- Tantus Bullet(s) ⁉️
+
+- [We-Vibe Touch](https://www.solochro.me/posts/we-vibe-touch) ✅
+
+  
 
 ### Internal Vibrators
 
-- BMS Swan Wand* 🚧
-- We-Vibe Nova
-- [Blush Noje G Slim](https://www.solochro.me/posts/noje-g-slim) 
-- Je Joue G-Kii 
-- Je Joue Uma
+- BMS Swan Wand 
+- [Blush Noje G Slim](https://www.solochro.me/posts/noje-g-slim) ✅
+- Toyfriend Choosy
+- Je Joue G-Kii ✅
+- Je Joue Uma 
+- We-Vibe Nova 😐
 
 ### Pulsators/Thrusting Toys
 
-- Fun Factory Stronic G
+- Fun Factory Stronic G 😐
 
 ### Sleeves
 
-- Blue Valentine Sexy Pill
+- Blue Valentine Sexy Pill 😐
+- Shotpocket ✅
 
 ### Suction Toys
 
-- Womanizer Starlet
-- Womanizer Premium
+- Womanizer Premium 😐
+- Womanizer Starlet 😐
 
 ### Butt Toys
-- [Tantus Ripple](http://www.solochro.me/posts/tantus-ripple) ⭐️
+- B-Vibe Snug Plug 2 🎖
+- Fun Factory B-Balls Duo 📢
+- The Hole Punch
+- Je Joue Nuo ✅
+- Luscious Playthings Curved Rosebud, XS 🎖
+- njoy Pure Plug, L
+- SquarePeg Egg Plug in SuperSoft Graphite, XS
+- SquarePeg Egg Plug in Firm Black, S
+- Tantus Ryder mk. II (the version before the current one) ✅ 
+- [Tantus Ripple](http://www.solochro.me/posts/tantus-ripple) 🎖
 - [Tantus Touchdown](http://www.solochro.me/posts/tantus-touchdown) 
-- ~~Tantus Severin Super Soft, Small~~
-- SquarePeg Egg Plug in SuperSoft Graphite, XS 
-- Fun Factory B-Balls Duo 🚧
-- B-Vibe Snug Plug 2 
-- Je Joue Nuo ⭐️
-- Tantus Ryder mk. II (the version before the current one)
+- Tantus Severin Super Soft, Small 😐
