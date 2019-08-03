@@ -22,13 +22,13 @@ I wanted to reserve emoji for strong feelings on toys. My thoughts and feelings 
 
 📢 = important negative thing(s) to know about this toy that might not be obvious.
 
-Toy Count: 55
+Total Toy Count (Includes toys I don't own anymore): 57
 
 ### Dildos
 
 - BS Atelier G-Spot, M 🎖
 - BS Atelier Max Poly ✅
-- Doc Johnson The Slim
+- Doc Johnson The Slim 
 - Désirables Dalia 🎖
 - Fun Factory ShareVibe 📢
 - [Fun Factory Tiger](https://www.solochro.me/posts/fun-factory-tiger)
@@ -47,6 +47,7 @@ Toy Count: 55
 - Tantus Sport
 - Tantus Flurry O2 😐
 - Vixen Mustang in Fluor-a-Green
+- Vixen Raquel 📢
 
 ### External Vibrators
 - BMS PalmPower Recharge
@@ -79,7 +80,7 @@ Toy Count: 55
 - [Blush Noje G Slim](https://www.solochro.me/posts/noje-g-slim) ✅
 - Toyfriend Choosy
 - Je Joue G-Kii ✅
-- Je Joue Uma 
+- Je Joue Uma ✅
 - We-Vibe Nova 😐
 
 ### Pulsators/Thrusting Toys
@@ -98,14 +99,16 @@ Toy Count: 55
 
 ### Butt Toys
 - B-Vibe Snug Plug 2 🎖
+- B-Vibe Vibrating Snug Plug, M
 - Fun Factory B-Balls Duo 📢
 - The Hole Punch
 - Je Joue Nuo ✅
 - Luscious Playthings Curved Rosebud, XS 🎖
-- njoy Pure Plug, L
+- njoy Pure Plug, L 🎖
 - SquarePeg Egg Plug in SuperSoft Graphite, XS
 - SquarePeg Egg Plug in Firm Black, S
 - Tantus Ryder mk. II (the version before the current one) ✅ 
-- [Tantus Ripple](http://www.solochro.me/posts/tantus-ripple) 🎖
+- [Tantus Ripple Small](http://www.solochro.me/posts/tantus-ripple) 🎖
 - [Tantus Touchdown](http://www.solochro.me/posts/tantus-touchdown) 
 - Tantus Severin Super Soft, Small 😐
+
